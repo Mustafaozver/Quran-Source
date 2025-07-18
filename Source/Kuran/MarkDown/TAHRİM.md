@@ -1,0 +1,14 @@
+# TAHRİM
+---
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Ey Nebi! Allah’ın özel olarak sana helal kıldığını, neden kendine haram kılıyorsun? Eşlerinin gönlünü etmeye çalışıyorsun. Neyse ki Allah bağışlar, ikramı boldur.
+Allah, bu tür yeminlerinizi bozmayı size farz kılmıştır[*]. Allah sizin en yakınınızdır. Her şeyi bilen ve kararları doğru olan O’dur.
+Bir gün Nebi, eşlerinden birine gizli bir söz söylemişti. Eşi onu, diğer eşine bildirince Allah, Nebisini o konuda bilgilendirdi. O da onun birazını eşine anlattı, birazını da anlatmaktan vazgeçti. Eşine bildirdiğinde o: “Bunu sana kim bildirdi?” dedi. Nebi de “Bana, her şeyi bilen; her şeyin iç yüzünü bilen bildirdi.” diye cevap verdi.
+(Ey Nebî’nin iki eşi!) Allah’a yönelip tevbe ederseniz iyi olur. Çünkü ikinizin de gönlü kaydı. Eğer birlikte ona karşı harekete geçerseniz bilin ki Allah, Cebrail ve iyi müminler onun yakın dostlarıdır. Bundan sonra melekler de ona destek olurlar.
+Eğer sizi boşarsa bakarsınız ki Allah yerinize daha iyi eşler verir. Onlar, Allah’a teslim olan, inanıp güvenen, boyun eğen, ona yönelen, ibadetlerini yapan ve oruç tutan dullardan ve bakirelerden olabilir.
+Ey inanıp güvenenler! Tutuşturucusu insanlar ve taşlar olan bir ateşe karşı kendinizi ve ailenizi koruyun. Orayı iri gövdeli, katı yürekli melekler (görevliler[*]) yönetirler. Onlar, Allah’ın emrine karşı gelmezler; kendilerine ne emredilmişse onu yaparlar.
+Ey ayetleri görmezlikten gelenler (kafirler)![*] Bu gün özür ileri sürmeyin. Sadece yaptıklarınızın cezasını çekeceksiniz.
+Ey inanıp güvenenler! Örnek bir dönüşle Allah’a dönün. Belki Sahibiniz, nebilerini ve inanıp güvenenleri (müminleri) aşağılamayacağı günde kabahatlerinizi örter de sizi içinden ırmaklar akan bahçelere yerleştirir. (Oraya gidecek olanların) Nurları önlerini ve sağ yanlarını aydınlatır. Şöyle derler: “Rabbimiz, nurumuzu tamamla ve bizi bağışla. Her şeye bir ölçü koyan sensin.”
+Ey Nebi! Ayetleri görmezlikten gelenlerle (kafirlerle) ve iki yüzlülerle (münafıklarla) mücadeleye devam et. Onlara karşı dik dur. Onların varacağı yer Cehennem’dir. Ne kötü hale gelmektir o!
+Allah, ayetleri görmezlikten gelenler için Nuh’un eşi ile Lut’un eşini örnek verir. Onlar, iyi kullarımızdan ikisinin nikahı altında idiler. Kocalarına ihanet ettiler. Kocaları onlara, Allah’tan gelen hiç bir şeyi engelleyemeyecektir. Onlara “Ateşe girenlerle birlikte siz de girin” denecektir.
+Allah, inanıp güvenen kimselere (müminlere) de Firavun’un eşini örnek verir. O şöyle demişti: “Sahibim (Rabbim)! Cennet’te, senin katında benim için bir ev yap. Beni Firavun’dan ve işlerinden kurtar. Beni yanlışlar içinde olan bu toplumdan kurtar.”

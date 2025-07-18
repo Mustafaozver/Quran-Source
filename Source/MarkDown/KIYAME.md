@@ -1,0 +1,163 @@
+# KIYAME القيامة ( Diriliş ) 
+---
+- Sure Adı : KIYAME
+- Sure No : 75
+- Sure Tipi : meccan
+- Sure Ayet Sayısı : 40
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Kıyamet (mezardan kalkış) gününe yemin etmem.
+Yanlışlarını görüp kendini kınayana da yemin etmem (Bunların önemi ortadadır.)
+İnsan kemiklerinin bileşimini tekrar gerçekleştirmeyeceğimizi mi sanıyor?
+Evet (Biz bunu yaparız), parmak uçlarını bile eski haline getirmenin ölçüsünü koyan Biziz.
+Ama, günahkar kişi, ilerisi ile ilişiğini kesmek ister[*].
+"Mezardan kalkış (kıyamet) günü ne zamanmış[*]?" diye sorar.
+(Mezardan kalkanın) Gözleri yuvalarından fırlayınca,
+Ay’ın ışığı kalmamış,
+Güneş ile Ay bir araya getirilmiş olur[*].
+İnsan o gün: "Kaçıp sığınılacak yer nerede?" der.
+Hayır! Artık sığınılacak yer kalmamıştır.
+O gün, varıp durulacak yer Rabbinin[*] huzurudur.
+Neye öncelik verdiği neyi ertelediği o gün insana tek tek bildirilir[*].
+Aslında insan, kendi aleyhine açık bir belgedir.
+Özürlerini sayıp dökse de bir şey değişmez.
+(Ona şöyle denir:) “Temize çıkmak için boşuna ağzını yorma.
+(Yaptığını da yapmadığını da) toparlayıp bir araya getirmek bizim işimizdir.
+Biz onu okurken sen okunanı takip et.
+Artık onları sayıp dökmek bizim işimizdir[*].
+Hayır! Bir an önce elinize geçecek şeyler istiyordunuz.
+Sonrasını düşünmüyordunuz.
+O gün bir takım yüzler parlaktır,
+Rablerinin ikramını beklerler.
+O gün bazı yüzler de asıktır,
+bellerinin kırılacağını sanırlar.
+Hayır (kendinize çeki düzen verin)! Can, köprücük kemiklerine dayanınca,
+(telaşa düşülür) "Bunu kurtaracak biri var mı?" denir.
+Artık o, ayrılık vaktinin geldiğini anlar
+ve ayakları birbirine dolaşır[*].
+O gün sevkiyat Sahibinin huzurunadır.
+O kişi, doğruları kabul etmemiş, destek de vermemişti.
+Ama yalana yönelmiş ve doğrulara sırt çevirmiş,
+sonra da kahraman edasıyla yandaşlarının yanına gitmişti.
+(Be akılsız!) Senin için öncelikli olan ve öncelikli olması gereken (doğruları kabul etmen ve destek vermendir.)
+Evet, senin için öncelikli olan ve öncelikli olması gereken budur.
+İnsan başıboş bırakılacağını mı sanıyor?
+O, özellikleri belirlenen meniden, döllenmiş yumurtaya dönüşmedi mi[*]?
+Sonra rahme asılı hale geldi, arkasından Allah ona şekil[*] verip organlarını tamamladı.
+O meniden, erkeği ile dişisi ile bütün çiftleri oluşturdu.
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[*]&nbsp;</strong>Fecr = الفجر bir şeyi genişçe yarmaktır. (Müfredat) 
+
+	&nbsp;
+<strong>[*]</strong> Şeytanın kıyamet gününe kadar yaşamak istemesi de bundandır. Önce günah işlemeyi, sonra tevbe edip iyi şeyler yaparak (insanların hayırsız olduğu konusundaki) haklılığını ispatlamaya çalışmaktadır. Ama günaha alışanın onu terk etmesi kolay değildir. (Bkz: <a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#14">Araf 7/14-17</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Hicr.htm#35">Hicr 15/35-40</a>)
+<strong>[*]</strong> O gün Güneş dürülmüş olacağı için (<a href="http://suleymaniyevakfimeali.com/Meal/Tekvir.htm#1">Tekvir 81/1</a>)
+
+	“Yer, Rabbinin ışığıyla aydınlanacak, Kitap ortaya konacak, nebiler ve tanıklar getirilecektir. Aralarında doğru bir yargılama olacak, kimseye haksızlık yapılmayacaktır.” (<a href="http://suleymaniyevakfimeali.com/Meal/Zümer.htm#69">Zümer 39/69</a>)
+<strong>[*]</strong> Sahibinin
+<strong>[*]</strong> “İnsanlar sıralar halinde Rabbinin huzuruna çıkarılırlar. (Onlara denir ki) "Karşımıza, ilk yarattığımız gibi (tek tek) geldiniz. Aslında sizin için buluşma yeri ve zamanı belirlemeyeceğimizi sanmıştınız." Defterleri önlerine konur. Günahkarların, defterde olanlardan korkuya kapıldıklarını görürsün. Derler ki "Eyvah! Bu nasıl defter ki küçük büyük bırakmadan hepsini sayıp dökmüş.“ (<a href="http://suleymaniyevakfimeali.com/Meal/Kehf.htm#48">Kehf 18/48-49</a>)
+
+	Yaptıkları her şeyi karşılarında hazır bulurlar. Senin Rabbin kimseye yanlış yapmaz. Her insanın tâirini (uçup gider sandığı işlerini) boynuna bağladık. (Mezardan) kalkış günü ona ait bir defter çıkarırız. Açılmış olarak onu karşılar. Ona şöyle denir: “Defterini oku; bugün kendi hesabını kendine vermen yeterlidir”. (<a href="http://suleymaniyevakfimeali.com/Meal/İsra.htm#14">İsra 17/14-15</a>)
+<strong>[*]</strong> “İnsanlar sıralar halinde Rabbinin huzuruna çıkarılırlar. (Onlara denir ki) "Karşımıza ilk yarattığımız gibi (tek tek) geldiniz. Aslında sizin için buluşma yeri ve zamanı belirlemeyeceğimizi sanmıştınız.”
+
+	Defterleri önlerine konur. Günahkarların, defterde olanlardan korkuya kapıldıklarını görürsün. Derler ki "Eyvah! Bu nasıl defter ki küçük-büyük bırakmadan hepsini sayıp dökmüş.“ Yaptıkları her şeyi karşılarında hazır bulurlar. Senin Rabbin kimseye yanlış yapmaz.” (<a href="http://suleymaniyevakfimeali.com/Meal/Kehf.htm#48">Kehf 18/48-49</a>)
+[*] Kelime kelime anlamı şöyledir: “Bacağı bacağına dolaşmıştır.” Türkçe’de bacağın dolaşmasından değil ayakların dolaşmasından söz edilir.
+<strong>[*]</strong> Size analarınızın rahminde, tercihine göre şekil ve yetenekler veren O'dur. (<a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#6">Al-i İmran 3/6</a>)
+[*] halaka = خَلَقَ fiilinin kök anlamı düzgün şekil vermektir. (bkz. Müfredat)
+```
+---
+## القيامة
+```read
+لَآ أُقۡسِمُ بِيَوۡمِ ٱلۡقِيَٰمَةِ
+وَلَآ أُقۡسِمُ بِٱلنَّفۡسِ ٱللَّوَّامَةِ
+أَيَحۡسَبُ ٱلۡإِنسَٰنُ أَلَّن نَّجۡمَعَ عِظَامَهُۥ
+بَلَىٰ قَٰدِرِينَ عَلَىٰٓ أَن نُّسَوِّيَ بَنَانَهُۥ
+بَلۡ يُرِيدُ ٱلۡإِنسَٰنُ لِيَفۡجُرَ أَمَامَهُۥ
+يَسۡـَٔلُ أَيَّانَ يَوۡمُ ٱلۡقِيَٰمَةِ
+فَإِذَا بَرِقَ ٱلۡبَصَرُ
+وَخَسَفَ ٱلۡقَمَرُ
+وَجُمِعَ ٱلشَّمۡسُ وَٱلۡقَمَرُ
+يَقُولُ ٱلۡإِنسَٰنُ يَوۡمَئِذٍ أَيۡنَ ٱلۡمَفَرُّ
+كَلَّا لَا وَزَرَ
+إِلَىٰ رَبِّكَ يَوۡمَئِذٍ ٱلۡمُسۡتَقَرُّ
+يُنَبَّؤُاْ ٱلۡإِنسَٰنُ يَوۡمَئِذِۭ بِمَا قَدَّمَ وَأَخَّرَ
+بَلِ ٱلۡإِنسَٰنُ عَلَىٰ نَفۡسِهِۦ بَصِيرَةٞ
+وَلَوۡ أَلۡقَىٰ مَعَاذِيرَهُۥ
+لَا تُحَرِّكۡ بِهِۦ لِسَانَكَ لِتَعۡجَلَ بِهِۦٓ
+إِنَّ عَلَيۡنَا جَمۡعَهُۥ وَقُرۡءَانَهُۥ
+فَإِذَا قَرَأۡنَٰهُ فَٱتَّبِعۡ قُرۡءَانَهُۥ
+ثُمَّ إِنَّ عَلَيۡنَا بَيَانَهُۥ
+كَلَّا بَلۡ تُحِبُّونَ ٱلۡعَاجِلَةَ
+وَتَذَرُونَ ٱلۡأٓخِرَةَ
+وُجُوهٞ يَوۡمَئِذٖ نَّاضِرَةٌ
+إِلَىٰ رَبِّهَا نَاظِرَةٞ
+وَوُجُوهٞ يَوۡمَئِذِۭ بَاسِرَةٞ
+تَظُنُّ أَن يُفۡعَلَ بِهَا فَاقِرَةٞ
+كَلَّآ إِذَا بَلَغَتِ ٱلتَّرَاقِيَ
+وَقِيلَ مَنۡۜ رَاقٖ
+وَظَنَّ أَنَّهُ ٱلۡفِرَاقُ
+وَٱلۡتَفَّتِ ٱلسَّاقُ بِٱلسَّاقِ
+إِلَىٰ رَبِّكَ يَوۡمَئِذٍ ٱلۡمَسَاقُ
+فَلَا صَدَّقَ وَلَا صَلَّىٰ
+وَلَٰكِن كَذَّبَ وَتَوَلَّىٰ
+ثُمَّ ذَهَبَ إِلَىٰٓ أَهۡلِهِۦ يَتَمَطَّىٰٓ
+أَوۡلَىٰ لَكَ فَأَوۡلَىٰ
+ثُمَّ أَوۡلَىٰ لَكَ فَأَوۡلَىٰٓ
+أَيَحۡسَبُ ٱلۡإِنسَٰنُ أَن يُتۡرَكَ سُدًى
+أَلَمۡ يَكُ نُطۡفَةٗ مِّن مَّنِيّٖ يُمۡنَىٰ
+ثُمَّ كَانَ عَلَقَةٗ فَخَلَقَ فَسَوَّىٰ
+فَجَعَلَ مِنۡهُ ٱلزَّوۡجَيۡنِ ٱلذَّكَرَ وَٱلۡأُنثَىٰٓ
+أَلَيۡسَ ذَٰلِكَ بِقَٰدِرٍ عَلَىٰٓ أَن يُحۡـِۧيَ ٱلۡمَوۡتَىٰ
+```
+---
+## Al-Qiyamah
+```read
+I swear by the Day of Resurrection
+And I swear by the reproaching soul [to the certainty of resurrection]
+Does man think that We will not assemble his bones
+Yes. [We are] Able [even] to proportion his fingertips
+But man desires to continue in sin
+He asks, "When is the Day of Resurrection
+So when vision is dazzled
+And the moon darkens
+And the sun and the moon are joined
+Man will say on that Day, "Where is the [place of] escape
+No! There is no refuge
+To your Lord, that Day, is the [place of] permanence
+Man will be informed that Day of what he sent ahead and kept back
+Rather, man, against himself, will be a witness
+Even if he presents his excuses
+Move not your tongue with it, [O Muhammad], to hasten with recitation of the Qur'an
+Indeed, upon Us is its collection [in your heart] and [to make possible] its recitation
+So when We have recited it [through Gabriel], then follow its recitation
+Then upon Us is its clarification [to you]
+No! But you love the immediate
+And leave the Hereafter
+[Some] faces, that Day, will be radiant
+Looking at their Lord
+And [some] faces, that Day, will be contorted
+Expecting that there will be done to them [something] backbreaking
+No! When the soul has reached the collar bones
+And it is said, "Who will cure [him]
+And the dying one is certain that it is the [time of] separation
+And the leg is wound about the leg
+To your Lord, that Day, will be the procession
+And the disbeliever had not believed, nor had he prayed
+But [instead], he denied and turned away
+And then he went to his people, swaggering [in pride]
+Woe to you, and woe
+Then woe to you, and woe
+Does man think that he will be left neglected
+Had he not been a sperm from semen emitted
+Then he was a clinging clot, and [Allah] created [his form] and proportioned [him]
+And made of him two mates, the male and the female
+Is not that [Creator] Able to give life to the dead
+```n

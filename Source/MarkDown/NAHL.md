@@ -1,0 +1,506 @@
+# NAHL النحل ( Arı ) 
+---
+- Sure Adı : NAHL
+- Sure No : 16
+- Sure Tipi : meccan
+- Sure Ayet Sayısı : 128
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Allah’ın emri gelecektir; acele etmeyin. Allah, onların ortak saydıkları şeylerden uzak ve yücedir.
+Allah, kendi emrini içeren ruhu[1*], melekleri aracılığı ile kullarından seçtiği kişiye[2*] indirir ve der ki “İnsanları uyarın; Ben’den başka ilah yoktur, hepiniz Ben’den çekinerek kendinizi koruyun.”
+Allah, gökleri ve yeri gerçek varlıklar olarak yaratmıştır[*]. O, onların ortak saydıkları şeyden uzaktır.
+O insanı, döllenmiş yumurtadan yaratmıştır. Bir de bakarsın ki (o insan) Allah’a açık bir düşman kesilir.
+En’âmı da (koyun, keçi, sığır ve deveyi) sizin için o yarattı. Onlarda ısıtan ve işe yarayan şeyler vardır. Onlardan yiyecek de edinirsiniz.
+Ağıla alırken ve otlağa salarken onlarda sizin için bir güzellik vardır.
+Yüklerinizi öyle yere taşırlar ki yarı canınız gitmeden siz oralara varamazsınız. Rabbiniz çok şefkatlidir ve ikramı boldur.
+Atları, katırları ve eşekleri sizin için hem binek, hem de süs olsun diye yarattı. Bilmediğiniz daha neler yaratır.
+Doğru yolu Allah gösterir. Eğri yollar da vardır. Gerekeni (size bırakmayıp) kendisi yapsaydı elbette hepinizi doğru yolda tutardı[*].
+Sizin için gökten su indiren O'dur. İçecekler ve içinde hayvanlarınızı otlattığınız bitkiler o sudan olur.
+O su ile sizin için ekini, zeytini, hurmaları, üzümleri ve meyvenin her türlüsünü bitirir. Düşünen bir topluluk için bunda kesin belge(ayet) vardır.
+Allah geceyi, gündüzü, güneşi ve ayı sizin hizmetinize verdi. Yıldızlar da onun emriyle hizmetinizdedirler. Aklını kullanan bir topluluk için bunda kesin belgeler(ayetler) vardır.
+Sizin için bu yerde türlü renklerle yetiştirdiği ne varsa, hepsinde bilgisini kullanan bir topluluk için kesin bir belge(ayet) vardır.
+Denizi de hizmetinize verdi ki ondan taze et yiyesiniz ve çıkaracağınız süsleri takınasınız. Gemilerin onu yara yara gittiğini görürsün; o gemiler (Allah’ın) ikram olarak verdiklerini aramanız içindir. Belki görevlerinizi yerine getirirsiniz.
+Sizi kaydırıp batırmasın diye[*] yerin içine sabitleyen (oturaklı) dağlar yerleştirdi. Hedeflerinize ulaşabilmeniz için de ırmaklar ve yollar koydu.
+Birçok işaretler ve yıldızlarla yollarını bulurlar.
+Hiç yaratan, yaratmayan gibi olur mu? Bilgilerinizi kullanmaz mısınız?
+Allah’ın nimetlerini saymaya kalksanız sayamazsınız. Allah, suçlarınızı örtüp ikramda bulunur.
+Allah, neyi gizlediğinizi ve neyi açığa vurduğunuzu bilir.
+Allah ile aralarına koyarak yardıma çağırdıklarının hiçbiri bir şey yaratamaz. Zaten kendileri yaratılmış durumdadırlar.
+Onlar birer ölüdür, diri değillerdir. Ne zaman diriltileceklerinin de farkında olmazlar.
+Sizin ilahınız bir tek ilahtır. Ahirete inanmayanların kalpleri, kendilerini yalanlar. Onlar, kendilerini büyük gören kimselerdir.
+Allah, onların neyi gizlediklerini ve neyi açığa vurduklarını bilir; bunda zerre kadar şüphe olmaz. O, kendini büyük görenleri sevmez.
+Onlara: “Rabbinizin indirdiği nedir?” diye sorulsa, “Eskilerin masalları” derler.
+Böylece (mezardan) kalkış günü hem kendi günahlarını hem de bir bilgiye dayanmadan yoldan çıkardıkları kimselerin günahları kadar bir günahı yüklenirler.  Bakın ne kötü yük yükleniyorlar!
+Kendilerinden önce gelenler de oyun kurmuşlardı. Allah yapılarını temellerinden sarsmış ve çatılarını tepelerine yıkmıştı. O azap onlara hiç beklemedikleri yerden gelmişti.
+Sonra (mezardan) kalkış günü Allah, onları rezil edecek ve diyecek ki “Uğruna cemaatler oluşturduğunuz ortaklarım nerede?” Kendilerine ilim verilmiş olanlar diyecekler ki “Bugün bütün rezillik ve bütün kötülükler o kâfirlerin üstündedir.”
+Kendilerini kötü duruma düşürmüşken, meleklerin vefat ettirdiği kimseler hemen teslimiyet gösterir ve “Kötü bir şey yapmıyorduk ki!” derler. Allah ne yaptığınızı bilir.
+“Haydi, girin Cehennem’in kapılarından. Orada ölümsüz olarak kalacaksınız.  Büyüklük taslayanların yerleşecekleri yer ne kötüdür!”
+Kendilerini koruyanlara: “Rabbiniz neyi indirdi?” diye sorulunca, “İyiyi!” diyeceklerdir. Bu dünyada iyilik eden iyilik bulur. Ahiret yurdu elbette daha iyidir. Kendilerini korumuş olanların[*] son yurdu ne güzeldir!
+Onlar, içinden ırmaklar akan bozulmayacak bahçelere gireceklerdir. Orada istedikleri her şey vardır. Allah, kendini koruyanların ödülünü işte böyle verir.
+Melekler, iyi durumdayken vefat ettirdikleri kişilere; “Esenlik ve güvenlik sizedir (Selamun aleykum)” derler, “Yapmış olduğunuz şeylerin karşılığı olarak girin cennete[*].”
+Bunlar ne bekliyorlar? Meleklerin gelmesini veya Rablerinin (Sahiplerinin) emrinin gelmesini mi? Onlardan öncekiler de böyle yaptılar. Allah onlara karşı bir yanlış yapmadı ama onlar yanlışı kendilerine yapıyorlardı.
+Yaptıkları işlerin kötü tarafları onlara gelip çattı da hafife aldıkları o şey başlarına geldi.
+Müşrikler derler ki “Allah, gerekeni yapsaydı[*] onunla aramıza herhangi bir şeyi koyup kulluk etmezdik; bunu ne biz yapardık ne de atalarımız. Allah’ın haram kıldığından başkasını da haram kılmazdık.” Onlardan öncekiler de böyle yapmışlardı. Elçilere düşen, açık bir tebliğden başka nedir ki?
+Biz her topluma (ümmete) elçi gönderdik; Allah’a kul olsunlar ve azgınlardan uzak dursunlar diye. Onların içinden, Allah’ın yoluna kabul ettiği kimseler de oldu, sapıklığı hak etmiş olanlar da. Yeryüzünü dolaşın da o yalancıların sonunun nasıl olduğunu bir görün.
+Yola gelmeleri için ne kadar çırpınırsan çırpın, Allah, sapık saydığı kişiyi[1] yola getirmez. Bu gibilerin yardımcıları da olmaz.
+“Allah ölen kimseyi tekrar diriltmez” diye bütün güçleriyle yemin ettiler. Hayır! Bu Allah’ın verdiği gerçek sözdür ama bunu insanların çoğu bilmezler.
+Tekrar diriltecek ki anlaşmazlığa düştükleri konuları onlara açıklasın ve ayetleri görmezlikten gelenler (kafirler), yalancı olduklarını öğrensinler.
+Olmasını istediğimiz şey için sözümüz sadece “Oluş!” demektir. Sonra o şey oluşur.
+Haksızlığa uğradıktan sonra Allah yolunda hicret[*]  edenleri dünyada güzel yerlere yerleştiririz. Bunun öbür dünyadaki ödülü daha büyüktür. Keşke bilebilselerdi.
+Onlar sabırlı olan ve Rablerine güvenip dayanan kimselerdir.
+Senden önce elçi gönderdiklerimiz, sadece kendilerine vahyettiğimiz erkeklerdi. Bilmiyorsanız o Zikri bilenlere[*] sorun.
+Onları mucizelerle ve zebûrlarla[1*] gönderdik. Bu Zikri (bu Kitabı) da sana indirdik ki kendilerine gönderilenin ne olduğunu o insanlara açık açık anlatasın[2*], belki düşünürler.
+Kötü oyun kuranlar, Allah’ın kendilerini yerin dibine geçirmesine ya da beklemedikleri bir yerden üzerlerine azap gelmesine karşı güvende midirler?
+Yahut dönüp dolaşırken Allah’ın onları yakalamasına karşı güvenceleri mi var? Onlar, Allah’ı çaresiz bırakamazlar.
+Ya da kendilerini yavaş yavaş tüketerek cezalandırırsa? Ama Rabbiniz pek şefkatlidir ve ikramı boldur.
+Bunlar, Allah’ın yarattığı herhangi bir şeyi görmediler mi gölgeleri sağdan ve sol taraflardan alçalmış bir biçimde[*] Allah’a secde ederek (boyun eğerek) döner.
+Göklerde ve yerde olan bütün hareketli[1*] canlılar ve melekler, Allah’a boyun eğer(secde)[2*] ve kendilerini büyük görmezler.
+Emri altında oldukları Rablerinden korkarlar da kendilerine ne emredilirse onu yaparlar.
+Allah dedi ki “İki ilah (tanrı) edinmeyin. O bir tek ilahtır. İçten içe, yalnız benden korkun.”
+Göklerde ve yerde ne varsa O'nundur. Din de sürekli onundur. Yine de Allah’tan başkasından mı çekiniyorsunuz?
+Sahip olduğunuz bütün nimetler Allah’tandır. Size bir zorluk dokununca da yalnız O’na yalvarıp yakarırsınız.
+Sonra o zorluğu üzerinizden kaldırdı mı içinizden bir takımı hemen Rablerine bir ortak oluştururlar.
+Bunu, bizim verdiğimizi gizlemek için yaparlar. Keyfini sürün bakalım; yakında öğrenirsiniz.
+Bir de kendilerine verdiğimiz rızıklardan ne olduğunu bilmedikleri ilahlarına pay çıkarırlar. Vallahi[*]  bu iftiranızdan dolayı sorguya çekileceksiniz.
+Allah için kızlar oluşturuyorlar[*]; O bundan uzaktır. Özledikleri oğlanlar da kendilerine kalıyor.
+Onlardan birine “Kızın oldu!” diye müjde verilince yutkunur ve yüzü kapkara kesilir,
+Müjdelendiği şeyin kötülüğünden dolayı halkının karşısına çıkamaz olur. Aşağılanmayı göze alarak onu tutsun mu, yoksa toprağa mı gömsün? Bakın, ne kötü karar veriyorlar!
+Ahirete inanmayanlar kötü örnek verirler. En iyi örnek, Allah’ın verdiği örnektir. Üstün olan ve doğru kararlar veren O’dur.
+Allah, yaptıkları yanlışlardan dolayı insanları hemen yakalasaydı yeryüzünde hareket eden kimseyi bırakmazdı. Ama Allah, onları, belirlenmiş ecellerine[1*] kadar erteliyor. Ecelleri gelince ne onu bir süreliğine erteleyebilirler, ne de ecelleri gelmeden[2*] onun gelmesini sağlayabilirler[3*].
+Dillerinin süslediği yalanla en güzelin kendi hakları olduğunu söyleyerek beğenmedikleri şeyi Allah’a mal ederler. Zerre kadar şüphe yok ki onların hak ettikleri ateştir ve oraya önce onlar sokulacaklardır.
+Vallahi senden önceki toplumlara da elçiler gönderdik. Şeytan onlara, yaptıkları işi süslü gösterdi. O, bugün de onların dostudur. Onların hak ettiği acıklı bir azaptır.
+Sana bu Kitabı, anlaşmazlığa düştükleri konuları açık açık anlatasın bir de inanıp güvenen bir topluluğa yol gösterici ve ikram olsun diye indirdik.
+Allah gökten su indirir ve onunla yeri, ölümünden sonra diriltir. Bunda, dinleyen bir topluluk için kesin belge (ayet) vardır.
+Sizin en’âmdan (koyun, keçi, sığır ve deveden) alacağınız ders vardır. İçlerindeki fers[1*] ile kanın ayrışmasından[2*] oluşan ve içenlerin boğazından kayıp giden saf bir sütü size içiririz.
+Hurma ağaçlarının ürünlerinden ve üzümlerden, hem sarhoşluk veren içki hem de güzel rızık elde edersiniz. Aklını kullanan bir topluluk için bunda kesin bir belge (ayet) vardır.
+Rabbin bal arısına şöyle bildirdi: “Dağlarda, ağaçlarda ve insanların yaptıkları çardaklarda kendine evler edin.
+Sonra bütün ürünlerden ye ve Rabbinin sana gösterdiği yollara koyul.” Arıların içinden değişik renklerde bir sıvı çıkar ki bu sıvıda insanlar için şifa bulunur. İşte bunda düşünen bir topluluk için kesin bir belge (ayet) vardır.
+Sizi yaratan Allah’tır sonra vefat[*] ettirecektir. Kiminiz ömrünün en düşkün çağına kadar yaşatılır ki bildiğini bilemez hale gelsin. Allah bilir ve ölçü koyar.
+Allah rızık konusunda kiminizi kiminden üstün kılar. Üstün kılınanlar, hakimiyeti altındakilere (esirlere)[1*] kendi rızıklarından vermezler. Ama rızıkta bunlar da onlarla eşit hakka sahiptirler[2*]. Allah’ın nimeti karşısında bile bile yalana mı sarılıyorlar?
+Size kendinizden eşler var eden, eşlerinizden de çocuklar ve torunlar var eden, size temiz rızıklar veren Allah’tır. Allah’ın nimetlerini görmezlikten gelerek batıla mı inanıyorsunuz[*]?
+Kendilerine göklerden ve yerden rızık olarak verecek bir şeyi olmayan ve buna gücü de yetmeyenleri Allah ile aralarına koyup kulluk ediyorlar.
+Siz, Allah’ı bir şeylere benzetmeyin[*]. Allah bilir, siz bilmezsiniz.
+Allah size bir benzetme yapıyor; hâkimiyet altında olup hiçbir şeye gücü yetmeyen bir esir, bir de kendine güzel rızık verdiğimiz ve onu gizli-açık hayra harcayan kişi. Hiç bunlar bir olur mu[*]? Allah ne yaparsa güzel yapar ama onların çoğu bunu bilmezler.
+Allah size iki kişilik bir benzetme daha yapıyor. Biri, dostuna yük olmuş bir dilsiz, hiç bir şey yapamaz, nereye gönderse bir iş beceremez. Diğeri, doğru bir yolda olup adil ve dengeli davranışlar istiyor. Bu iki kimse bir olur mu[*]?
+Göklerin ve yerin bütün bilinmeyeni (gaybı) Allah’a aittir. Kıyamet saati göz açıp kapama kadardır, belki daha da yakındır. Allah her şeye bir ölçü koyar.
+Allah sizi analarınızın karnından çıkardığında hiç bir şey bilmiyordunuz. Ama size dinleme ve ileri görüşlü olma (basiret) özelliği ile gönüller vermişti. Belki  görevlerinizi yerine getirirsiniz.
+Allah’a boyun eğerek gök boşluğunda uçan kuşları görmediler mi? Bunları orada Allah’tan başkası tutamaz[*]. İşte bunda düşünen bir toplululuk için belgeler(ayetler) vardır.
+Allah evlerinizi size dinlenme yeri yaptı. En’âm[*] derilerinden göç gününde ve konaklama gününde yükte hafif evler; yünlerinden, tüylerinden ve kıllarından da bir süre yararlanacağınız ev eşyalarını ve diğer malları yaptı.
+Allah, yarattığı bazı şeyleri size gölgelik yaptı. Dağlarda sığınaklar oluşturdu. Vücut ısısını koruyan elbiseler ile sizi zor durumlarda koruyan elbiseler yaptı[*]. Allah size olan nimetini böyle tamamlar, belki O’na teslim olursunuz.
+Yüz çevirirlerse sana düşen sadece her şeyi açıklayan bir tebliğdir.
+Allah’ın nimetini bilirler ama itiraf etmezler. Onların çoğu kâfirdir.
+Her toplumdan(ümmetten) bir şahit çıkardığımız gün, şahitlerden sonra kâfirlere konuşma izni verilmeyecek ve bağışlanma dileğinde bulunmaları bile istenmeyecektir[*].
+Yanlışlar içinde yaşamış olanlar, azabı görünce o azap artık ne hafifletilecek, ne de onlara göz açtırılacaktır.
+Ortak(şirk) koşanlar, Allah’a ortak saydıkları kişileri gördüklerinde derler ki “Rabbimiz! Ortak sayıp senden önce yardıma çağırdıklarımız işte bunlardır.” Onlar hemen şu karşılığı verirler: “Sizler kesinlikle yalancı kimselersiniz.”
+Uydurdukları şeylerin işlerine yaramadığı gün Allah’a teslim olduklarını dile getirirler.
+Ayetleri görmezlikten gelenler (kafirler) ve O’nun yolundan çevirenlerin azaplarının üstüne, bozgunculuklarına karşılık bir azap daha koyarız.
+Her toplumun (ümmetin) içinden kendilerine karşı bir şahit çıkardığımız gün, seni de bunlara karşı şahit getiririz. Bu Kitabı, her şeyi açıklasın, doğru yolu göstersin, bir ikram ve İslam’a girenlere müjdeci olsun diye sana parça parça indirdik.
+Allah, adaleti, güzel davranışı, yakınlara veren el olmayı emreder. Fuhşu, kötü davranışları  ve saldırganlığı (sınır tanımazlığı)[*] yasaklar. Allah size öğüt verir, belki bilginizi kullanırsınız.
+Sözleştiğiniz zaman Allah için verdiğiniz sözü yerine getirin ve bir de Allah’ı kendinize kefil ederek sağlamlaştırdığınız yeminlerinizi bozmayın. Allah ne yaptığınızı bilir.
+Bir toplum (ümmet), başka toplumdan üstün diye, yeminlerinizi bozulabilir sayıp ipliğini sağlam eğirdikten sonra çözüp bozan kadın gibi olmayın. Allah bu şekilde sizi sınar. (Mezardan) kalkış günü, aranızda anlaşmazlığa düştüğünüz konuları size elbette bildirecektir.
+Yapılması gerekeni Allah yapsaydı hepinizi tek bir toplum (ümmet) haline getirirdi[1*]. Ama Allah, (sapıklığın) gereğini yapanı sapık sayar, (doğru yolda olmanın) gereğini yapanı[2*] da yoluna kabul eder. Yaptıklarınızdan elbette sorumlu tutulacaksınız.
+Aranızda yeminlerinizi bozulabilir saymayın; yoksa ayak sağlam basmışken kayıverir de Allah’ın yolundan dönmenizin kötülüğünü tadarsınız. Sizin için büyük bir azap sebebi olur.
+Allah için verdiğiniz sözü geçici bir bedelle değiştirmeyin. Bilirseniz sizin için hayırlı olan, Allah’ın katındakidir.
+Sizin yanınızda olan tükenir, Allah’ın yanındakiler kalıcı olur. Sabırlı olanların ödülünü yaptıklarının en güzeline göre veririz.
+Erkek olsun, kadın olsun, kim inanıp güvenir ve iyi iş yaparsa ona güzel bir hayat yaşatırız. Ödüllerini de yaptıklarının en güzeline göre veririz.
+Kur’ân okuduğun zaman taşlanan şeytanlardan (Cin şeytanlarından) Allah’a sığın.[*]
+Şeytanın, inanıp güvenen ve Rablerine dayananlar üzerinde bir üstünlüğü (gücü,yetkisi)[*] olmaz.
+Onun üstünlüğü (gücü,yetkisi), sadece onu dost(veli) edinenler ile Allah’a ortak(şirk) koşanlar üzerinde olur.
+Allah, neyi indireceğini çok iyi bildiği halde, bir âyetin yerine başka bir âyeti koyduğumuzda sana şöyle dediler: “Sen sadece iftiracısın.” Yok, onların pek çoğu bunu bilmezler.
+De ki “Onu, Ruh’ül-kudüs[*] Rabbinden bir gerçek olarak indirdi ki inanıp güvenenleri sağlamlaştırsın, doğru yolu göstersin ve tam teslim olanlara bir müjde olsun
+“Bunu ona bir kişi[*] öğretiyor” dediklerini elbette biliyoruz. Dillerine doladıkları o kişi Arapça bilmez ama Kur’ân’ın dili apaçık Arapçadır.
+Allah’ın âyetlerine inanmayanları Allah, yoluna kabul etmez. Onların hak ettiği acıklı bir azaptır.
+Allah’ın âyetlerine inanmayanlar sadece yalan uydururlar. Onlar yalancı kimselerdir.
+İman içine tam olarak yatmış birinin baskı altında kafir olduğunu söylemesi bir yana, kim inandıktan sonra gönlünü kafirliğe açarsa Allah’ın öfkesi onların üstünde olur. Onların hak ettiği büyük bir azaptır.
+Bu onların, dünya hayatını ahiretten daha çok sevmeleri sebebiyledir.  Allah, kâfirler[*] topluluğunu yola getirmez.
+Bunlar, kalpleri, dinleme ve görmeleri üzerinde Allah’ın yeni bir yapı oluşturduğu kimselerdir. Onlar, ne yaptıklarının farkında değillerdir.
+Zerre kadar şüphe yok ki ahirette onlar, umduğunu bulamayacaklardır[*].
+Senin Rabbin var ya işte senin Rabbin, çektirilen sıkıntılardan sonra hicret eden sonra da mücadele (cihad)[*] eden ve sabırlı olanları çok bağışlar ve onlara ikram eder.
+Bir gün herkes kendi canını kurtarmaya gelir, herkes ne ettiyse onu bulur. Kimseye haksızlık yapılmaz.
+Allah, rızkı her yerden bol miktarda gelen, güven ve tatmin içindeki bir kenti örnek verir. Derken orası, Allah’ın nimetlerine nankörlük etmeye başlar. Allah da işlerini bozmalarına karşılık onları, açlık ve korku içine sokar.
+Bunlara içlerinden mutlaka bir elçi gelir ve onu yalancı sayarlar. İşte o azap, yanlışlar içinde iken onları yakalar.
+Öyleyse Allah’ın size verdiği rızkın helal ve temiz olanlarını yiyin. Kulluğu yalnız ona yapıyorsanız Allah’a teşekkür edin.
+Allah size sadece ölüyü (leşi), kanı, domuz etini ve Allah’tan başkası adına kesileni haram kılmıştır. Kim zorda kalır da aşırı gitmez ve başkasının hakkına saldırmazsa Allah bağışlar, ikramı boldur.
+Allah’a karşı yalan uydurmak için dillerinizin süslediği yalanla “Bu helaldir, bu haramdır” demeyin. Bu yalanı Allah’a atfetmeyin. Yalanlarını Allah’a atfedenler umduklarına kavuşamazlar.
+Bu pek az bir menfaatir. Onların hak ettiği acıklı bir azaptır[*].
+Sana anlattığımız şeyleri daha önce Yahudilere de haram kılmıştık. Bizim onlara bir yanlışımız olmadı ama onlar, yanlışı kendilerine yapıyorlardı.
+Sonra senin Rabbin, kendine hakim olamayarak[*] kötülük işleyen, ardından da dönüş yapıp (tevbe) düzelenlerden yanadır. Senin Rabbin, bütün bunlardan sonra elbette bağışlar ve ikram eder.
+İbrahim tek başına bir toplumdu (ümmetti)[*]. Allah’a boyun eğerdi, hep doğruya yönelirdi ve müşriklerden (Allah’ı ikinci sıraya koyanlardan) olmamıştı.
+Allah’ın nimetlerine teşekkür ederdi. Allah ona fırsat verdi ve doğru bir yola yöneltti.
+Ona bu dünyada bir güzellik verdik. O, öbür dünyada da elbette iyilerden olacaktır.
+Sana da şunu vahyettik: “Hep doğruya yönelen ve müşriklere karışmamış olan İbrahim’in dinine uy”
+Cumartesi yasağı, o konuda ihtilafa düşenlere kondu. Senin Rabbin, (mezardan) kalkış günü, ihtilaf ettikleri konu hakkında aralarında hüküm verecektir.
+Sen hikmetle[*] ve güzel öğütle Rabbinin yoluna çağır. Onlarla en güzel şekilde tartış. Senin Rabbin, yolundan sapanları iyi bilir, doğru yolda olanları da iyi bilir.
+Eğer ceza vermek isterseniz size ne yapıldıysa onun dengiyle ceza verin. Sabredecek olursanız kuşkusuz bu, sabredenler için daha iyidir.
+Sen sıkıntılara göğüs ger (sabret); senin sabrın sadece Allah’ın yardımı ile olur. Onlar için üzülme. Kurdukları tuzaktan dolayı sıkıntıya girme.
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[1*]&nbsp;</strong>Bu ayetteki Ruh, Allah’ın emirlerini içeren ayetler kümesi yani Kur’an’dır. Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/İsra.htm#85">İsra 17/85</a>
+
+	<strong>[2*]&nbsp;</strong>Şâe = شاء fiilinin kökü, “var etme” anlamında olan şey =شيء’dir. (Müfredât). Allah her şeyi, bir ölçüye göre yaratır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/kamer.htm#49">Kamer 54/49</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/rad.htm#8">Ra’d 13/8</a>) İmtihanla ilgili şeyleri iyi ve kötü diye ikiye ayırmıştır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/enbiya.htm#35">Enbiyâ 21/35</a>) Allah, herkesin doğru yolda olmasını ister (Nisa 4/26) ama sadece iyi işler yapanı doğru yolda sayar. (<a href="https://www.suleymaniyevakfimeali.com/Meal/nur.htm#46">Nur 24/46</a>) Yaptığının iyi mi yoksa kötü mü olduğunu da kuluna ilham eder. (<a href="https://www.suleymaniyevakfimeali.com/Meal/%C5%9Fems.htm#7">Şems 91/7-10</a>) Bu ayette Allah, koyduğu kurallara uygun olarak kitap indirdiği neb”ilerinden söz etmektedir.
+
+	&nbsp;
+<strong>[*]</strong>&nbsp; Bu ayet, Allah dışındaki varlıkların da gerçek olduğunu bildirmekte ve vahdet-i vücudu reddetmektedir. Çünkü vahdet-i vücuda göre Allah’tan başka varlık yoktur; varlık diye bilinenler onun gölgesidir. Onlara göre gölge de yoktur. Oysa ki Allah, göklerin ve yerin gerçek varlıklar olduğunu açıkça bildirmektedir. Ayrıca <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#255">Bakara 2/255</a>’e&nbsp; göre de Vahdet-i Vücud inancı Kur’an’a uygun değildir. &nbsp;
+[*]&nbsp; Bkz. <a href="https://www.suleymaniyevakfimeali.com/Meal/maide.htm#48">Maide 5/48</a> ve dipnotu.
+
+	&nbsp;
+<strong>[*]&nbsp;</strong>مِيدَ = meyd, gidip gelme, sallanma (el- Ayn) batırma ve alt üst etme anlamlarına gelir. (Lisan’ul-Arab) Jeolojide yerin içinde, sıvı veya hamur kıvamında uçucu gazlarla doymuş eriyikten oluşan magma tabakasından söz edilir.&nbsp;&nbsp; yet, yerin altında böyle bir tabakanın varlığına delilidir. Kara parçalarının dağlarla sabitlenmesi ise geminin limana demir atması gibi olur. Demir atma eylemi, geminin dalgalarla sürüklenip batmasını engellediği gibi dağlar da kara parçalarının mağma tabakası üzerinde kayıp insanları batırmasını engeller. Bu, deprem değildir. Deprem, zelzele/ زلزلة kökünden kelimelerle ifade edilir.
+
+	&nbsp;
+<strong>[*]&nbsp;Müttekiler:</strong> Allah’tan çekinerek korunan, kendini bozmamış olanlar. Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#2">Bakara 2/2</a>.
+<strong>[*]</strong> Bu âyet, kabrin iyiler için cennet bahçelerinden bir bahçe olacağını gösterir. Benzer ayet <a href="http://suleymaniyevakfimeali.com/Meal/Yasin.htm#26">Yasin 36/26</a>
+<strong>[*]</strong>&nbsp;Şâe = شاء fiilinin kökü, “var etme” anlamında olan şey =شيء’dir. (Müfredât). Allah her şeyi, bir ölçüye göre yaratır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/kamer.htm#49">Kamer 54/49</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/rad.htm#8">Ra’d 13/8</a>) İmtihanla ilgili şeyleri iyi ve kötü diye ikiye ayırmıştır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/enbiya.htm#35">Enbiyâ 21/35</a>) Allah, herkesin doğru yolda olmasını ister (<a href="https://www.suleymaniyevakfimeali.com/Meal/nisa.htm#26">Nisa 4/26</a>) ama sadece iyi işler yapanı doğru yolda sayar. (<a href="https://www.suleymaniyevakfimeali.com/Meal/nur.htm#46">Nur 24/46</a>) Yaptığının iyi mi yoksa kötü mü olduğunu da kuluna ilham eder. (<a href="https://www.suleymaniyevakfimeali.com/Meal/%C5%9Fems.htm#7">Şems 91/7-10</a>)Müşrikler, sorumluluğu Allah’a atmak için kaderciliğe sarılır, yapmaları gereken görevleri, Allah’ın görevi gibi gösterirler.
+
+	&nbsp;
+<strong>[*]</strong> &nbsp;Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Rad.htm#27">Ra’d 13/27</a>
+<strong>[*]</strong> &nbsp;Hicret: Göç etmek
+<strong>[*]</strong> Ayetin metninde geçen Zikir, Allah’ın indirdiği kitap ehl-i zikir de o kitapta uzmanlaşmış kişi demektir.
+<strong>[1*]</strong>&nbsp;Zebûrlar diye meal verdiğimiz ez-Zübür =الزُّبر, zebûr’un çoğuludur, hikmet dolu kitaplar anlamındadır. (ez-Zeccâ, Meânî’l-Kur’ân ve İ’râbuhu) Ali- İmrân 3/81’de bütün nebîlere kitap ve hikmet verildiği açıklandığı için bu ayetteki zübür’ün, hikmet dolu kitaplar dışında bir anlamı olamaz&nbsp; Kelime, Nahl 16/43-44 Şuarâ 26/196, Fatır 35/25 ve Kamer 54/43’te aynı anlamı ifade etmektedir. Bu zebûrlardan biri de Davut aleyhisselama verilmiştir. (Nisa 4/163, İsra 17/55) Zebûr, Davut aleyhisselama verilen kitabın özel ismi olmadığı için ez- Zebûr şeklinde geçmemektedir. Kelime, ez-Zebûr şeklinde elif lâmlı olarak sadece Enbiyâ 21/105’te geçer ve Davut aleyhisselam da dahil bütün nebîlere verilen kitapları ifade eder. Ayrıca Enbiya 21/105’in dipnotuna bkz.&nbsp;
+
+	<strong>[2*]</strong>&nbsp;Burada Nebîmize Kur’an’ı açıklama yetkisi değil, tebliği görevi verilmiştir. Bunu şu ayetten daha açık olarak anlarız.(وَإِذَ أَخَذَ اللّهُ مِيثَاقَ الَّذِينَ أُوتُواْ الْكِتَابَ لَتُبَيِّنُنَّهُ لِلنَّاسِ وَلاَ تَكْتُمُونَهُ&nbsp;) Allah, kendilerine kitap verilenlerden kesin söz aldı; &nbsp;“Bu Kitabı insanlara açık açık anlatacaksınız, asla gizlemeyeceksiniz!”dedi. ( Al-i İmran 3/187)
+
+	&nbsp;
+<strong>[*]</strong> وَهُمْ دَاخِرُون ifadesi üzerinde durmak gerekir. Burada gölge, Arapça kurallarına göre ‘akıllı erkek varlık’ gibi gösterilmektedir. Diğer bir ifade ile kendisine bakıldığını anlayan, bakana göre görünen bir varlık olarak ifade ediliyor. Işık ve gölgenin bu özelliği ancak Allah’ın indirdiği ve yarattığı ayetleri birlikte okuyacak bilim insanları tarafından açıklanabilir.
+<strong>[1*]</strong> <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#164">Bakara 2/164</a> ayetini esas alarak çeviri yapıldı.
+
+	<strong>[2*]</strong> Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Rad.htm#15">Ra’d 13/15 </a>ve dipnotu
+<strong>[*] </strong>Yemin etmek:
+<strong>[*]</strong> Melekleri Allah’ın kızı sayıp ilah(tanrı) ediniyorlar.
+<strong>[1*] </strong>Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Enam.htm#2">Enam 6/2</a>.Ayet ve dip notu
+
+	<strong>[2*] </strong>Biz bir şeyi irade etsek bile onu, Allah, ayrı bir varlık olarak yaratmadan hiçbir şey yapamayız. <a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#54">Araf 7/54</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Tekvir.htm#29">Tekvir 81/29</a>,<a href="http://suleymaniyevakfimeali.com/Meal/Tevbe.htm#51">Tevbe 9/51</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Hadid.htm#22">Hadid 57/22</a>
+
+	<strong>[3*] </strong>Benzeşik (müteşabih ayetler) <a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#34">Araf 7/34</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Hicr.htm#5">Hicr 15/5</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Yunus.htm#49">Yunus 10/49</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Nahl.htm#61">Nahl 16/61</a>,<a href="http://suleymaniyevakfimeali.com/Meal/Müminun.htm#43">Müminun 23/43</a>
+<strong>[1*] Fers;</strong> hazmedilen gıdaların bağırsaklardan süzülüp kana karışmış haline denir. Oradan karaciğere gelir ve işlenir ve vücuda dağılır. Hücreler, bu fers ile beslenir. Fers, doğum yapmış bir hayvanın memesine gelince meme onu kandan ayırır ve özel bir sıvı salgılayarak süt haline getirir. Kan ve fers aslında pistir. Bunlar yalın halde yenmez içilmez. Ama Allah Teâlâ bu iki pis maddeyi önce ayırır sonra bir sıvı ile fersin kimyasını değiştirir. Sonra mucize içecek olan süt meydana gelir. İşte bundan ders almak gerekir.
+
+	<strong>[2*]</strong> Ulaşabildiğimiz tefsir ve melallerde ayetin “min beyni fersin ve demin” cümlesine “kan ile fışkı arasından” diye anlam verilmiştir. “Beyn” kelimesine “arasında” yani “vast” anlamı verilebilir ama onun asıl anlamı “ayırmak” yani “firak”tır. Bu ayet için uygun olan firak anlamıdır.<br>
+	&nbsp;
+<strong>[*] </strong>Ruh’un bedenden alınması vefat, canlılığın son bulması ölüm(mevt)’tir. Örneğin insanlar uyurken canlılıkları devam etmesine rağmen ruhları vücutlarında değildir(<a href="http://suleymaniyevakfimeali.com/Meal/Zümer.htm#42">Zümer 39/42</a>).
+
+	&nbsp;
+<strong>[1*]</strong>...
+
+	<strong>[2*]</strong> Peygamberimizin şöyle buyurduğu rivayet edilmiştir: Ellerinizin altındaki esirler ailenizin fertleri ve kardeşlerinizdir. Onları hâkimiyetinize veren Allah’tır. Allah kimin hâkimiyetine kardeşini vermişse yediğinden yedirsin, giydiğinden giydirsin ve ağır işler yüklemesin, yükleyecekse de ona yardım etsin.” (<strong>Buhârî İman/22 babu’l-meâsı min emr’il-cahiliye</strong>)
+<strong>[*]</strong> İltifat
+<strong>[*]</strong> Biz Allah’ı hayalimizde canlandıramayız. Bizim Allah ile ilgili bilgimiz O’nun bize Kur’an’da kendi hakkında bildirdiği kadardır. Bunun ötesinde yorumlar ve benzetmeler yapmak batıldır.&nbsp;Mesela hurafeciler Allah’ı devlet başkanına benzeterek kendilerinin de vali, kaymakam veya muhtar gibi onun bazı yetkilerine sahip kimseler olarak kabul edilmelerini sağlamak isterler. Bu, şirktir. Allah Teala, insanların yapacağı her tür benzetmeden uzaktır. 
+
+	<br>
+	&nbsp;
+<strong>[*] </strong>Bunlar bir olmazsa Allah ile uydurduğunuz ilahlar nasıl bir olur.
+
+	&nbsp;
+<strong>[*]</strong> İlah(tanrı) diye tapılanlar işte bu dilsiz adam gibidir.
+
+	&nbsp;
+<strong>[*] </strong>Orada Allah’ın koyduğu kanuna göre uçmaktadır.
+<strong>[*] En’âm, </strong>koyun, keçi, sığır ve deve anlamına gelir. (<a href="http://suleymaniyevakfimeali.com/Meal/Enam.htm#144">En’âm 6/144</a>)
+<strong>[*]</strong> Bunun imkanlarını yarattı ve kurallarını koydu.
+<strong>[*]</strong>&nbsp;&nbsp;Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Rum.htm#57">Rum 30/57</a>
+[*]&nbsp;“(Güzel davrananlar), kusurları hariç, günahların büyüklerinden ve fuhuş çeşitlerinden kaçınanlardır. Sahibinin bağışlaması boldur. Topraktan sizi oluştururken de analarınızın karnında birer cenin iken de sizi en iyi bilen O’dur. Kendinizi iyi göstermeye kalkmayın. Yanlışlardan kimin daha fazla korunduğunu en iyi O bilir.” (<a href="https://www.suleymaniyevakfimeali.com/Meal/necm.htm#32">Necm 53/32</a>) Ayrıca bkz. <a href="https://www.suleymaniyevakfimeali.com/Meal/nisa.htm#31">Nisa 4/31</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/araf.htm#80">A’raf 7/80-81</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/isra.htm#32">İsra 17/32</a>)
+
+	&nbsp;
+<strong>[1*]</strong>&nbsp;Birinizi diğerinizden ayırmaz, hepinizi mümin yapardı. Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Maide.htm#48">Maide 5/48</a>
+
+	<strong>[2*]</strong>&nbsp;Bu âyette geçen şâe = شاء fiilinin kökü, “var etme” anlamında olan şey =شيء’dir. (Müfredât). Allah her şeyi, bir ölçüye göre yaratır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/kamer.htm#49">Kamer 54/49</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/rad.htm#8">Ra’d 13/8</a>) İmtihanla ilgili şeyleri iyi ve kötü diye ikiye ayırmıştır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/enbiya.htm#35">Enbiyâ 21/35</a>) Allah, herkesin doğru yolda olmasını ister (<a href="https://www.suleymaniyevakfimeali.com/Meal/nisa.htm#26">Nisa 4/26</a>) ama sadece iyi işler yapanı doğru yolda sayar. (<a href="https://www.suleymaniyevakfimeali.com/Meal/nur.htm#46">Nur 24/46</a>) Yaptığının iyi mi yoksa kötü mü olduğunu da kuluna ilham eder. (<a href="https://www.suleymaniyevakfimeali.com/Meal/%C5%9Fems.htm#7">Şems 91/7-10</a>)
+
+	Buna göre şâe = شاء fiilinin öznesi Allah olursa “gerekeni yaptı” insan olursa “tercihinin gereğini yaptı” anlamına gelir.
+
+	Kur’an’da olmayan kader inancını İslam’a yerleştirmek isteyenler, büyük bir çarpıtma yaparak şâe = شاء fiiline irade yani isteme ve dileme anlamı vermiş, bu yanlış anlamı, tefsirlere hatta sözlüklere bile yerleştirerek birçok ayetin mealini bozmuşlardır. Yukarıdaki âyetin meali şöyle olmuştur:
+
+	“Allah dileseydi sizi tek bir ümmet yapardı. Ama O, dilediğini saptırır, dilediğini doğru yola eriştirir. Bütün yaptıklarınızdan elbette sorumlu tutulacaksınız.”
+
+	Bunu yapanlar Kur’an’ı, çelişkili bir kitap gibi göstermeyi de başarmışlardır. Ayrıntı için bkz: <a href="https://www.suleymaniyevakfi.org/akaid-arastirmalari/kuranda-sey-mesiet-irade-ve-fitrat.html">http://www.suleymaniyevakfi.org/akaid-arastirmalari/kuranda-sey-meset-irade-ve-fitrat.html</a>
+
+	&nbsp;
+
+	&nbsp;
+[*]&nbsp;Şeytan, doğru yoldan uzaklaşan ve o yolda olanlara düşmanlık edip onları da uzaklaştırmaya çalışan insanları ve cinleri ifade eder. (En'am 6/112-113, Nas 114/1-6) Taşlanan şeytanlar, gözümüzle göremediğimiz cin şeytanlarıdır. Allah Teâlâ şöyle buyurmuştur: <em>Biz, en yakınınızdaki göğü (birinci katı) bir süsle; yıldızlarla süsledik. Onu, her inatçı şeytana karşı koruduk. Onlar, Mele-i A’lâ’yı (büyük meleklerin toplantısını) dinleyemez; her taraftan taşlanırlar. Hep kovulurlar; azap yakalarını bırakmaz. Onlardan kim bilgi hırsızlığı yapacak olsa, delici bir göktaşı hemen onun peşine düşer.</em> (Saffât 37/6-10)
+<strong>[*] Bkz.</strong> <a href="http://suleymaniyevakfimeali.com/Meal/İbrahim.htm#22">İbrahim 14/22</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Hicr.htm#42">Hicr 15/42</a>
+<strong>[*]</strong> Vahiy meleği Cebrail (a.s.)
+<strong>[*] </strong>İnsan
+<strong>[*]&nbsp;</strong>Kafirlerin en önemli özelliği dünya hayatını Ahirete tercih etmeleridir. Bu nedenle ayetleri görmezlikten gelirler.
+<strong>[*]&nbsp;</strong>Hüsran (TDK Sözlük): Beklenilen şeyin elde edilememesi yüzünden duyulan acı, batkı
+<strong>[*]</strong> Bkz <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#218">Bakara 2/218</a> ve dipnotu
+<strong>[*]</strong> <a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#197">Al-i İmran 3/197</a> esas alınmıştır.
+<strong>[*]</strong> Arapçada cahil kelimesi, ‘bilmeyen’ değil ‘kendini tutamayan’, kendine hakim olamayan, nefsine yenik düşen anlamına gelir. Allah insanları bilmediğinden sorumlu tutmamıştır. Cahillik eden bilmediği için değil kendine hakim olamadığı için eder. Türkçe’de cahil kelimesine arapça kökenli bir kelime olmasına rağmen farklı anlam yüklenmiştir. Cahil kelimesinin kullanıldığı ayetler için Bkz.<a href="http://suleymaniyevakfimeali.com/Meal/Enam.htm#35">En’am 6/35</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Yusuf.htm#33">Yusuf 12/33</a>,
+
+	&nbsp;
+<strong>[*] Ümmet: </strong>Toplum, Bir lideri olan ve hedefleri uğruna(örneğin din uğruna) o lider etrafında hür iradesi ile toplananlardır. İbrahim(a.s.) başlangıçta kimsenin inanmadığı bir nebi resuldü. Onu izleyen kimse olmamasına rağmen mücadelesine devam etti. Kelimenin bu ayette kullanılmasından anlaşılacağı üzere bir hedef uğrunda, en az bir liderden oluşan ve onun etrafında kendi iradeleri ile bir araya gelip hareket edenler ümmettir. Bu topluluk bir arada olma bilinciyle hareket ettiğinden artık topluluk(halk) olma durumundan toplum(millet) olma durumuna geçerler.
+
+	Bu nedenle Türkçe Mealde ümmet geçen ayetlere TOPLUM , kavim geçen ayetlere TOPLULUK veya HALK manası tercih edilmiştir. Kur’anda ümmet ve kavim kelimelerinin aynı cümle içinde kullanıldığı ayet olan <a href="http://suleymaniyevakfimeali.com/Meal/Maide.htm#159">Araf 7/159 </a>bu iki kelimenin farklılığını algılamak açısından önemlidir.
+
+	&nbsp;
+[*] Kur’an’dan çıkarılmış doğru hükümlerle. Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#7">Al-i İmran 3/7</a> ve dipnotları.
+```
+---
+## النحل
+```read
+أَتَىٰٓ أَمۡرُ ٱللَّهِ فَلَا تَسۡتَعۡجِلُوهُۚ سُبۡحَٰنَهُۥ وَتَعَٰلَىٰ عَمَّا يُشۡرِكُونَ
+يُنَزِّلُ ٱلۡمَلَـٰٓئِكَةَ بِٱلرُّوحِ مِنۡ أَمۡرِهِۦ عَلَىٰ مَن يَشَآءُ مِنۡ عِبَادِهِۦٓ أَنۡ أَنذِرُوٓاْ أَنَّهُۥ لَآ إِلَٰهَ إِلَّآ أَنَا۠ فَٱتَّقُونِ
+خَلَقَ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضَ بِٱلۡحَقِّۚ تَعَٰلَىٰ عَمَّا يُشۡرِكُونَ
+خَلَقَ ٱلۡإِنسَٰنَ مِن نُّطۡفَةٖ فَإِذَا هُوَ خَصِيمٞ مُّبِينٞ
+وَٱلۡأَنۡعَٰمَ خَلَقَهَاۖ لَكُمۡ فِيهَا دِفۡءٞ وَمَنَٰفِعُ وَمِنۡهَا تَأۡكُلُونَ
+وَلَكُمۡ فِيهَا جَمَالٌ حِينَ تُرِيحُونَ وَحِينَ تَسۡرَحُونَ
+وَتَحۡمِلُ أَثۡقَالَكُمۡ إِلَىٰ بَلَدٖ لَّمۡ تَكُونُواْ بَٰلِغِيهِ إِلَّا بِشِقِّ ٱلۡأَنفُسِۚ إِنَّ رَبَّكُمۡ لَرَءُوفٞ رَّحِيمٞ
+وَٱلۡخَيۡلَ وَٱلۡبِغَالَ وَٱلۡحَمِيرَ لِتَرۡكَبُوهَا وَزِينَةٗۚ وَيَخۡلُقُ مَا لَا تَعۡلَمُونَ
+وَعَلَى ٱللَّهِ قَصۡدُ ٱلسَّبِيلِ وَمِنۡهَا جَآئِرٞۚ وَلَوۡ شَآءَ لَهَدَىٰكُمۡ أَجۡمَعِينَ
+هُوَ ٱلَّذِيٓ أَنزَلَ مِنَ ٱلسَّمَآءِ مَآءٗۖ لَّكُم مِّنۡهُ شَرَابٞ وَمِنۡهُ شَجَرٞ فِيهِ تُسِيمُونَ
+يُنۢبِتُ لَكُم بِهِ ٱلزَّرۡعَ وَٱلزَّيۡتُونَ وَٱلنَّخِيلَ وَٱلۡأَعۡنَٰبَ وَمِن كُلِّ ٱلثَّمَرَٰتِۚ إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّقَوۡمٖ يَتَفَكَّرُونَ
+وَسَخَّرَ لَكُمُ ٱلَّيۡلَ وَٱلنَّهَارَ وَٱلشَّمۡسَ وَٱلۡقَمَرَۖ وَٱلنُّجُومُ مُسَخَّرَٰتُۢ بِأَمۡرِهِۦٓۚ إِنَّ فِي ذَٰلِكَ لَأٓيَٰتٖ لِّقَوۡمٖ يَعۡقِلُونَ
+وَمَا ذَرَأَ لَكُمۡ فِي ٱلۡأَرۡضِ مُخۡتَلِفًا أَلۡوَٰنُهُۥٓۚ إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّقَوۡمٖ يَذَّكَّرُونَ
+وَهُوَ ٱلَّذِي سَخَّرَ ٱلۡبَحۡرَ لِتَأۡكُلُواْ مِنۡهُ لَحۡمٗا طَرِيّٗا وَتَسۡتَخۡرِجُواْ مِنۡهُ حِلۡيَةٗ تَلۡبَسُونَهَاۖ وَتَرَى ٱلۡفُلۡكَ مَوَاخِرَ فِيهِ وَلِتَبۡتَغُواْ مِن فَضۡلِهِۦ وَلَعَلَّكُمۡ تَشۡكُرُونَ
+وَأَلۡقَىٰ فِي ٱلۡأَرۡضِ رَوَٰسِيَ أَن تَمِيدَ بِكُمۡ وَأَنۡهَٰرٗا وَسُبُلٗا لَّعَلَّكُمۡ تَهۡتَدُونَ
+وَعَلَٰمَٰتٖۚ وَبِٱلنَّجۡمِ هُمۡ يَهۡتَدُونَ
+أَفَمَن يَخۡلُقُ كَمَن لَّا يَخۡلُقُۚ أَفَلَا تَذَكَّرُونَ
+وَإِن تَعُدُّواْ نِعۡمَةَ ٱللَّهِ لَا تُحۡصُوهَآۗ إِنَّ ٱللَّهَ لَغَفُورٞ رَّحِيمٞ
+وَٱللَّهُ يَعۡلَمُ مَا تُسِرُّونَ وَمَا تُعۡلِنُونَ
+وَٱلَّذِينَ يَدۡعُونَ مِن دُونِ ٱللَّهِ لَا يَخۡلُقُونَ شَيۡـٔٗا وَهُمۡ يُخۡلَقُونَ
+أَمۡوَٰتٌ غَيۡرُ أَحۡيَآءٖۖ وَمَا يَشۡعُرُونَ أَيَّانَ يُبۡعَثُونَ
+إِلَٰهُكُمۡ إِلَٰهٞ وَٰحِدٞۚ فَٱلَّذِينَ لَا يُؤۡمِنُونَ بِٱلۡأٓخِرَةِ قُلُوبُهُم مُّنكِرَةٞ وَهُم مُّسۡتَكۡبِرُونَ
+لَا جَرَمَ أَنَّ ٱللَّهَ يَعۡلَمُ مَا يُسِرُّونَ وَمَا يُعۡلِنُونَۚ إِنَّهُۥ لَا يُحِبُّ ٱلۡمُسۡتَكۡبِرِينَ
+وَإِذَا قِيلَ لَهُم مَّاذَآ أَنزَلَ رَبُّكُمۡ قَالُوٓاْ أَسَٰطِيرُ ٱلۡأَوَّلِينَ
+لِيَحۡمِلُوٓاْ أَوۡزَارَهُمۡ كَامِلَةٗ يَوۡمَ ٱلۡقِيَٰمَةِ وَمِنۡ أَوۡزَارِ ٱلَّذِينَ يُضِلُّونَهُم بِغَيۡرِ عِلۡمٍۗ أَلَا سَآءَ مَا يَزِرُونَ
+قَدۡ مَكَرَ ٱلَّذِينَ مِن قَبۡلِهِمۡ فَأَتَى ٱللَّهُ بُنۡيَٰنَهُم مِّنَ ٱلۡقَوَاعِدِ فَخَرَّ عَلَيۡهِمُ ٱلسَّقۡفُ مِن فَوۡقِهِمۡ وَأَتَىٰهُمُ ٱلۡعَذَابُ مِنۡ حَيۡثُ لَا يَشۡعُرُونَ
+ثُمَّ يَوۡمَ ٱلۡقِيَٰمَةِ يُخۡزِيهِمۡ وَيَقُولُ أَيۡنَ شُرَكَآءِيَ ٱلَّذِينَ كُنتُمۡ تُشَـٰٓقُّونَ فِيهِمۡۚ قَالَ ٱلَّذِينَ أُوتُواْ ٱلۡعِلۡمَ إِنَّ ٱلۡخِزۡيَ ٱلۡيَوۡمَ وَٱلسُّوٓءَ عَلَى ٱلۡكَٰفِرِينَ
+ٱلَّذِينَ تَتَوَفَّىٰهُمُ ٱلۡمَلَـٰٓئِكَةُ ظَالِمِيٓ أَنفُسِهِمۡۖ فَأَلۡقَوُاْ ٱلسَّلَمَ مَا كُنَّا نَعۡمَلُ مِن سُوٓءِۭۚ بَلَىٰٓۚ إِنَّ ٱللَّهَ عَلِيمُۢ بِمَا كُنتُمۡ تَعۡمَلُونَ
+فَٱدۡخُلُوٓاْ أَبۡوَٰبَ جَهَنَّمَ خَٰلِدِينَ فِيهَاۖ فَلَبِئۡسَ مَثۡوَى ٱلۡمُتَكَبِّرِينَ
+۞وَقِيلَ لِلَّذِينَ ٱتَّقَوۡاْ مَاذَآ أَنزَلَ رَبُّكُمۡۚ قَالُواْ خَيۡرٗاۗ لِّلَّذِينَ أَحۡسَنُواْ فِي هَٰذِهِ ٱلدُّنۡيَا حَسَنَةٞۚ وَلَدَارُ ٱلۡأٓخِرَةِ خَيۡرٞۚ وَلَنِعۡمَ دَارُ ٱلۡمُتَّقِينَ
+جَنَّـٰتُ عَدۡنٖ يَدۡخُلُونَهَا تَجۡرِي مِن تَحۡتِهَا ٱلۡأَنۡهَٰرُۖ لَهُمۡ فِيهَا مَا يَشَآءُونَۚ كَذَٰلِكَ يَجۡزِي ٱللَّهُ ٱلۡمُتَّقِينَ
+ٱلَّذِينَ تَتَوَفَّىٰهُمُ ٱلۡمَلَـٰٓئِكَةُ طَيِّبِينَ يَقُولُونَ سَلَٰمٌ عَلَيۡكُمُ ٱدۡخُلُواْ ٱلۡجَنَّةَ بِمَا كُنتُمۡ تَعۡمَلُونَ
+هَلۡ يَنظُرُونَ إِلَّآ أَن تَأۡتِيَهُمُ ٱلۡمَلَـٰٓئِكَةُ أَوۡ يَأۡتِيَ أَمۡرُ رَبِّكَۚ كَذَٰلِكَ فَعَلَ ٱلَّذِينَ مِن قَبۡلِهِمۡۚ وَمَا ظَلَمَهُمُ ٱللَّهُ وَلَٰكِن كَانُوٓاْ أَنفُسَهُمۡ يَظۡلِمُونَ
+فَأَصَابَهُمۡ سَيِّـَٔاتُ مَا عَمِلُواْ وَحَاقَ بِهِم مَّا كَانُواْ بِهِۦ يَسۡتَهۡزِءُونَ
+وَقَالَ ٱلَّذِينَ أَشۡرَكُواْ لَوۡ شَآءَ ٱللَّهُ مَا عَبَدۡنَا مِن دُونِهِۦ مِن شَيۡءٖ نَّحۡنُ وَلَآ ءَابَآؤُنَا وَلَا حَرَّمۡنَا مِن دُونِهِۦ مِن شَيۡءٖۚ كَذَٰلِكَ فَعَلَ ٱلَّذِينَ مِن قَبۡلِهِمۡۚ فَهَلۡ عَلَى ٱلرُّسُلِ إِلَّا ٱلۡبَلَٰغُ ٱلۡمُبِينُ
+وَلَقَدۡ بَعَثۡنَا فِي كُلِّ أُمَّةٖ رَّسُولًا أَنِ ٱعۡبُدُواْ ٱللَّهَ وَٱجۡتَنِبُواْ ٱلطَّـٰغُوتَۖ فَمِنۡهُم مَّنۡ هَدَى ٱللَّهُ وَمِنۡهُم مَّنۡ حَقَّتۡ عَلَيۡهِ ٱلضَّلَٰلَةُۚ فَسِيرُواْ فِي ٱلۡأَرۡضِ فَٱنظُرُواْ كَيۡفَ كَانَ عَٰقِبَةُ ٱلۡمُكَذِّبِينَ
+إِن تَحۡرِصۡ عَلَىٰ هُدَىٰهُمۡ فَإِنَّ ٱللَّهَ لَا يَهۡدِي مَن يُضِلُّۖ وَمَا لَهُم مِّن نَّـٰصِرِينَ
+وَأَقۡسَمُواْ بِٱللَّهِ جَهۡدَ أَيۡمَٰنِهِمۡ لَا يَبۡعَثُ ٱللَّهُ مَن يَمُوتُۚ بَلَىٰ وَعۡدًا عَلَيۡهِ حَقّٗا وَلَٰكِنَّ أَكۡثَرَ ٱلنَّاسِ لَا يَعۡلَمُونَ
+لِيُبَيِّنَ لَهُمُ ٱلَّذِي يَخۡتَلِفُونَ فِيهِ وَلِيَعۡلَمَ ٱلَّذِينَ كَفَرُوٓاْ أَنَّهُمۡ كَانُواْ كَٰذِبِينَ
+إِنَّمَا قَوۡلُنَا لِشَيۡءٍ إِذَآ أَرَدۡنَٰهُ أَن نَّقُولَ لَهُۥ كُن فَيَكُونُ
+وَٱلَّذِينَ هَاجَرُواْ فِي ٱللَّهِ مِنۢ بَعۡدِ مَا ظُلِمُواْ لَنُبَوِّئَنَّهُمۡ فِي ٱلدُّنۡيَا حَسَنَةٗۖ وَلَأَجۡرُ ٱلۡأٓخِرَةِ أَكۡبَرُۚ لَوۡ كَانُواْ يَعۡلَمُونَ
+ٱلَّذِينَ صَبَرُواْ وَعَلَىٰ رَبِّهِمۡ يَتَوَكَّلُونَ
+وَمَآ أَرۡسَلۡنَا مِن قَبۡلِكَ إِلَّا رِجَالٗا نُّوحِيٓ إِلَيۡهِمۡۖ فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ إِن كُنتُمۡ لَا تَعۡلَمُونَ
+بِٱلۡبَيِّنَٰتِ وَٱلزُّبُرِۗ وَأَنزَلۡنَآ إِلَيۡكَ ٱلذِّكۡرَ لِتُبَيِّنَ لِلنَّاسِ مَا نُزِّلَ إِلَيۡهِمۡ وَلَعَلَّهُمۡ يَتَفَكَّرُونَ
+أَفَأَمِنَ ٱلَّذِينَ مَكَرُواْ ٱلسَّيِّـَٔاتِ أَن يَخۡسِفَ ٱللَّهُ بِهِمُ ٱلۡأَرۡضَ أَوۡ يَأۡتِيَهُمُ ٱلۡعَذَابُ مِنۡ حَيۡثُ لَا يَشۡعُرُونَ
+أَوۡ يَأۡخُذَهُمۡ فِي تَقَلُّبِهِمۡ فَمَا هُم بِمُعۡجِزِينَ
+أَوۡ يَأۡخُذَهُمۡ عَلَىٰ تَخَوُّفٖ فَإِنَّ رَبَّكُمۡ لَرَءُوفٞ رَّحِيمٌ
+أَوَلَمۡ يَرَوۡاْ إِلَىٰ مَا خَلَقَ ٱللَّهُ مِن شَيۡءٖ يَتَفَيَّؤُاْ ظِلَٰلُهُۥ عَنِ ٱلۡيَمِينِ وَٱلشَّمَآئِلِ سُجَّدٗا لِّلَّهِ وَهُمۡ دَٰخِرُونَ
+وَلِلَّهِۤ يَسۡجُدُۤ مَا فِي ٱلسَّمَٰوَٰتِ وَمَا فِي ٱلۡأَرۡضِ مِن دَآبَّةٖ وَٱلۡمَلَـٰٓئِكَةُ وَهُمۡ لَا يَسۡتَكۡبِرُونَ
+يَخَافُونَ رَبَّهُم مِّن فَوۡقِهِمۡ وَيَفۡعَلُونَ مَا يُؤۡمَرُونَ۩
+۞وَقَالَ ٱللَّهُ لَا تَتَّخِذُوٓاْ إِلَٰهَيۡنِ ٱثۡنَيۡنِۖ إِنَّمَا هُوَ إِلَٰهٞ وَٰحِدٞ فَإِيَّـٰيَ فَٱرۡهَبُونِ
+وَلَهُۥ مَا فِي ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِ وَلَهُ ٱلدِّينُ وَاصِبًاۚ أَفَغَيۡرَ ٱللَّهِ تَتَّقُونَ
+وَمَا بِكُم مِّن نِّعۡمَةٖ فَمِنَ ٱللَّهِۖ ثُمَّ إِذَا مَسَّكُمُ ٱلضُّرُّ فَإِلَيۡهِ تَجۡـَٔرُونَ
+ثُمَّ إِذَا كَشَفَ ٱلضُّرَّ عَنكُمۡ إِذَا فَرِيقٞ مِّنكُم بِرَبِّهِمۡ يُشۡرِكُونَ
+لِيَكۡفُرُواْ بِمَآ ءَاتَيۡنَٰهُمۡۚ فَتَمَتَّعُواْ فَسَوۡفَ تَعۡلَمُونَ
+وَيَجۡعَلُونَ لِمَا لَا يَعۡلَمُونَ نَصِيبٗا مِّمَّا رَزَقۡنَٰهُمۡۗ تَٱللَّهِ لَتُسۡـَٔلُنَّ عَمَّا كُنتُمۡ تَفۡتَرُونَ
+وَيَجۡعَلُونَ لِلَّهِ ٱلۡبَنَٰتِ سُبۡحَٰنَهُۥ وَلَهُم مَّا يَشۡتَهُونَ
+وَإِذَا بُشِّرَ أَحَدُهُم بِٱلۡأُنثَىٰ ظَلَّ وَجۡهُهُۥ مُسۡوَدّٗا وَهُوَ كَظِيمٞ
+يَتَوَٰرَىٰ مِنَ ٱلۡقَوۡمِ مِن سُوٓءِ مَا بُشِّرَ بِهِۦٓۚ أَيُمۡسِكُهُۥ عَلَىٰ هُونٍ أَمۡ يَدُسُّهُۥ فِي ٱلتُّرَابِۗ أَلَا سَآءَ مَا يَحۡكُمُونَ
+لِلَّذِينَ لَا يُؤۡمِنُونَ بِٱلۡأٓخِرَةِ مَثَلُ ٱلسَّوۡءِۖ وَلِلَّهِ ٱلۡمَثَلُ ٱلۡأَعۡلَىٰۚ وَهُوَ ٱلۡعَزِيزُ ٱلۡحَكِيمُ
+وَلَوۡ يُؤَاخِذُ ٱللَّهُ ٱلنَّاسَ بِظُلۡمِهِم مَّا تَرَكَ عَلَيۡهَا مِن دَآبَّةٖ وَلَٰكِن يُؤَخِّرُهُمۡ إِلَىٰٓ أَجَلٖ مُّسَمّٗىۖ فَإِذَا جَآءَ أَجَلُهُمۡ لَا يَسۡتَـٔۡخِرُونَ سَاعَةٗ وَلَا يَسۡتَقۡدِمُونَ
+وَيَجۡعَلُونَ لِلَّهِ مَا يَكۡرَهُونَۚ وَتَصِفُ أَلۡسِنَتُهُمُ ٱلۡكَذِبَ أَنَّ لَهُمُ ٱلۡحُسۡنَىٰۚ لَا جَرَمَ أَنَّ لَهُمُ ٱلنَّارَ وَأَنَّهُم مُّفۡرَطُونَ
+تَٱللَّهِ لَقَدۡ أَرۡسَلۡنَآ إِلَىٰٓ أُمَمٖ مِّن قَبۡلِكَ فَزَيَّنَ لَهُمُ ٱلشَّيۡطَٰنُ أَعۡمَٰلَهُمۡ فَهُوَ وَلِيُّهُمُ ٱلۡيَوۡمَ وَلَهُمۡ عَذَابٌ أَلِيمٞ
+وَمَآ أَنزَلۡنَا عَلَيۡكَ ٱلۡكِتَٰبَ إِلَّا لِتُبَيِّنَ لَهُمُ ٱلَّذِي ٱخۡتَلَفُواْ فِيهِ وَهُدٗى وَرَحۡمَةٗ لِّقَوۡمٖ يُؤۡمِنُونَ
+وَٱللَّهُ أَنزَلَ مِنَ ٱلسَّمَآءِ مَآءٗ فَأَحۡيَا بِهِ ٱلۡأَرۡضَ بَعۡدَ مَوۡتِهَآۚ إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّقَوۡمٖ يَسۡمَعُونَ
+وَإِنَّ لَكُمۡ فِي ٱلۡأَنۡعَٰمِ لَعِبۡرَةٗۖ نُّسۡقِيكُم مِّمَّا فِي بُطُونِهِۦ مِنۢ بَيۡنِ فَرۡثٖ وَدَمٖ لَّبَنًا خَالِصٗا سَآئِغٗا لِّلشَّـٰرِبِينَ
+وَمِن ثَمَرَٰتِ ٱلنَّخِيلِ وَٱلۡأَعۡنَٰبِ تَتَّخِذُونَ مِنۡهُ سَكَرٗا وَرِزۡقًا حَسَنًاۚ إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّقَوۡمٖ يَعۡقِلُونَ
+وَأَوۡحَىٰ رَبُّكَ إِلَى ٱلنَّحۡلِ أَنِ ٱتَّخِذِي مِنَ ٱلۡجِبَالِ بُيُوتٗا وَمِنَ ٱلشَّجَرِ وَمِمَّا يَعۡرِشُونَ
+ثُمَّ كُلِي مِن كُلِّ ٱلثَّمَرَٰتِ فَٱسۡلُكِي سُبُلَ رَبِّكِ ذُلُلٗاۚ يَخۡرُجُ مِنۢ بُطُونِهَا شَرَابٞ مُّخۡتَلِفٌ أَلۡوَٰنُهُۥ فِيهِ شِفَآءٞ لِّلنَّاسِۚ إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّقَوۡمٖ يَتَفَكَّرُونَ
+وَٱللَّهُ خَلَقَكُمۡ ثُمَّ يَتَوَفَّىٰكُمۡۚ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرۡذَلِ ٱلۡعُمُرِ لِكَيۡ لَا يَعۡلَمَ بَعۡدَ عِلۡمٖ شَيۡـًٔاۚ إِنَّ ٱللَّهَ عَلِيمٞ قَدِيرٞ
+وَٱللَّهُ فَضَّلَ بَعۡضَكُمۡ عَلَىٰ بَعۡضٖ فِي ٱلرِّزۡقِۚ فَمَا ٱلَّذِينَ فُضِّلُواْ بِرَآدِّي رِزۡقِهِمۡ عَلَىٰ مَا مَلَكَتۡ أَيۡمَٰنُهُمۡ فَهُمۡ فِيهِ سَوَآءٌۚ أَفَبِنِعۡمَةِ ٱللَّهِ يَجۡحَدُونَ
+وَٱللَّهُ جَعَلَ لَكُم مِّنۡ أَنفُسِكُمۡ أَزۡوَٰجٗا وَجَعَلَ لَكُم مِّنۡ أَزۡوَٰجِكُم بَنِينَ وَحَفَدَةٗ وَرَزَقَكُم مِّنَ ٱلطَّيِّبَٰتِۚ أَفَبِٱلۡبَٰطِلِ يُؤۡمِنُونَ وَبِنِعۡمَتِ ٱللَّهِ هُمۡ يَكۡفُرُونَ
+وَيَعۡبُدُونَ مِن دُونِ ٱللَّهِ مَا لَا يَمۡلِكُ لَهُمۡ رِزۡقٗا مِّنَ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِ شَيۡـٔٗا وَلَا يَسۡتَطِيعُونَ
+فَلَا تَضۡرِبُواْ لِلَّهِ ٱلۡأَمۡثَالَۚ إِنَّ ٱللَّهَ يَعۡلَمُ وَأَنتُمۡ لَا تَعۡلَمُونَ
+۞ضَرَبَ ٱللَّهُ مَثَلًا عَبۡدٗا مَّمۡلُوكٗا لَّا يَقۡدِرُ عَلَىٰ شَيۡءٖ وَمَن رَّزَقۡنَٰهُ مِنَّا رِزۡقًا حَسَنٗا فَهُوَ يُنفِقُ مِنۡهُ سِرّٗا وَجَهۡرًاۖ هَلۡ يَسۡتَوُۥنَۚ ٱلۡحَمۡدُ لِلَّهِۚ بَلۡ أَكۡثَرُهُمۡ لَا يَعۡلَمُونَ
+وَضَرَبَ ٱللَّهُ مَثَلٗا رَّجُلَيۡنِ أَحَدُهُمَآ أَبۡكَمُ لَا يَقۡدِرُ عَلَىٰ شَيۡءٖ وَهُوَ كَلٌّ عَلَىٰ مَوۡلَىٰهُ أَيۡنَمَا يُوَجِّههُّ لَا يَأۡتِ بِخَيۡرٍ هَلۡ يَسۡتَوِي هُوَ وَمَن يَأۡمُرُ بِٱلۡعَدۡلِ وَهُوَ عَلَىٰ صِرَٰطٖ مُّسۡتَقِيمٖ
+وَلِلَّهِ غَيۡبُ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِۚ وَمَآ أَمۡرُ ٱلسَّاعَةِ إِلَّا كَلَمۡحِ ٱلۡبَصَرِ أَوۡ هُوَ أَقۡرَبُۚ إِنَّ ٱللَّهَ عَلَىٰ كُلِّ شَيۡءٖ قَدِيرٞ
+وَٱللَّهُ أَخۡرَجَكُم مِّنۢ بُطُونِ أُمَّهَٰتِكُمۡ لَا تَعۡلَمُونَ شَيۡـٔٗا وَجَعَلَ لَكُمُ ٱلسَّمۡعَ وَٱلۡأَبۡصَٰرَ وَٱلۡأَفۡـِٔدَةَ لَعَلَّكُمۡ تَشۡكُرُونَ
+أَلَمۡ يَرَوۡاْ إِلَى ٱلطَّيۡرِ مُسَخَّرَٰتٖ فِي جَوِّ ٱلسَّمَآءِ مَا يُمۡسِكُهُنَّ إِلَّا ٱللَّهُۚ إِنَّ فِي ذَٰلِكَ لَأٓيَٰتٖ لِّقَوۡمٖ يُؤۡمِنُونَ
+وَٱللَّهُ جَعَلَ لَكُم مِّنۢ بُيُوتِكُمۡ سَكَنٗا وَجَعَلَ لَكُم مِّن جُلُودِ ٱلۡأَنۡعَٰمِ بُيُوتٗا تَسۡتَخِفُّونَهَا يَوۡمَ ظَعۡنِكُمۡ وَيَوۡمَ إِقَامَتِكُمۡ وَمِنۡ أَصۡوَافِهَا وَأَوۡبَارِهَا وَأَشۡعَارِهَآ أَثَٰثٗا وَمَتَٰعًا إِلَىٰ حِينٖ
+وَٱللَّهُ جَعَلَ لَكُم مِّمَّا خَلَقَ ظِلَٰلٗا وَجَعَلَ لَكُم مِّنَ ٱلۡجِبَالِ أَكۡنَٰنٗا وَجَعَلَ لَكُمۡ سَرَٰبِيلَ تَقِيكُمُ ٱلۡحَرَّ وَسَرَٰبِيلَ تَقِيكُم بَأۡسَكُمۡۚ كَذَٰلِكَ يُتِمُّ نِعۡمَتَهُۥ عَلَيۡكُمۡ لَعَلَّكُمۡ تُسۡلِمُونَ
+فَإِن تَوَلَّوۡاْ فَإِنَّمَا عَلَيۡكَ ٱلۡبَلَٰغُ ٱلۡمُبِينُ
+يَعۡرِفُونَ نِعۡمَتَ ٱللَّهِ ثُمَّ يُنكِرُونَهَا وَأَكۡثَرُهُمُ ٱلۡكَٰفِرُونَ
+وَيَوۡمَ نَبۡعَثُ مِن كُلِّ أُمَّةٖ شَهِيدٗا ثُمَّ لَا يُؤۡذَنُ لِلَّذِينَ كَفَرُواْ وَلَا هُمۡ يُسۡتَعۡتَبُونَ
+وَإِذَا رَءَا ٱلَّذِينَ ظَلَمُواْ ٱلۡعَذَابَ فَلَا يُخَفَّفُ عَنۡهُمۡ وَلَا هُمۡ يُنظَرُونَ
+وَإِذَا رَءَا ٱلَّذِينَ أَشۡرَكُواْ شُرَكَآءَهُمۡ قَالُواْ رَبَّنَا هَـٰٓؤُلَآءِ شُرَكَآؤُنَا ٱلَّذِينَ كُنَّا نَدۡعُواْ مِن دُونِكَۖ فَأَلۡقَوۡاْ إِلَيۡهِمُ ٱلۡقَوۡلَ إِنَّكُمۡ لَكَٰذِبُونَ
+وَأَلۡقَوۡاْ إِلَى ٱللَّهِ يَوۡمَئِذٍ ٱلسَّلَمَۖ وَضَلَّ عَنۡهُم مَّا كَانُواْ يَفۡتَرُونَ
+ٱلَّذِينَ كَفَرُواْ وَصَدُّواْ عَن سَبِيلِ ٱللَّهِ زِدۡنَٰهُمۡ عَذَابٗا فَوۡقَ ٱلۡعَذَابِ بِمَا كَانُواْ يُفۡسِدُونَ
+وَيَوۡمَ نَبۡعَثُ فِي كُلِّ أُمَّةٖ شَهِيدًا عَلَيۡهِم مِّنۡ أَنفُسِهِمۡۖ وَجِئۡنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِۚ وَنَزَّلۡنَا عَلَيۡكَ ٱلۡكِتَٰبَ تِبۡيَٰنٗا لِّكُلِّ شَيۡءٖ وَهُدٗى وَرَحۡمَةٗ وَبُشۡرَىٰ لِلۡمُسۡلِمِينَ
+۞إِنَّ ٱللَّهَ يَأۡمُرُ بِٱلۡعَدۡلِ وَٱلۡإِحۡسَٰنِ وَإِيتَآيِٕ ذِي ٱلۡقُرۡبَىٰ وَيَنۡهَىٰ عَنِ ٱلۡفَحۡشَآءِ وَٱلۡمُنكَرِ وَٱلۡبَغۡيِۚ يَعِظُكُمۡ لَعَلَّكُمۡ تَذَكَّرُونَ
+وَأَوۡفُواْ بِعَهۡدِ ٱللَّهِ إِذَا عَٰهَدتُّمۡ وَلَا تَنقُضُواْ ٱلۡأَيۡمَٰنَ بَعۡدَ تَوۡكِيدِهَا وَقَدۡ جَعَلۡتُمُ ٱللَّهَ عَلَيۡكُمۡ كَفِيلًاۚ إِنَّ ٱللَّهَ يَعۡلَمُ مَا تَفۡعَلُونَ
+وَلَا تَكُونُواْ كَٱلَّتِي نَقَضَتۡ غَزۡلَهَا مِنۢ بَعۡدِ قُوَّةٍ أَنكَٰثٗا تَتَّخِذُونَ أَيۡمَٰنَكُمۡ دَخَلَۢا بَيۡنَكُمۡ أَن تَكُونَ أُمَّةٌ هِيَ أَرۡبَىٰ مِنۡ أُمَّةٍۚ إِنَّمَا يَبۡلُوكُمُ ٱللَّهُ بِهِۦۚ وَلَيُبَيِّنَنَّ لَكُمۡ يَوۡمَ ٱلۡقِيَٰمَةِ مَا كُنتُمۡ فِيهِ تَخۡتَلِفُونَ
+وَلَوۡ شَآءَ ٱللَّهُ لَجَعَلَكُمۡ أُمَّةٗ وَٰحِدَةٗ وَلَٰكِن يُضِلُّ مَن يَشَآءُ وَيَهۡدِي مَن يَشَآءُۚ وَلَتُسۡـَٔلُنَّ عَمَّا كُنتُمۡ تَعۡمَلُونَ
+وَلَا تَتَّخِذُوٓاْ أَيۡمَٰنَكُمۡ دَخَلَۢا بَيۡنَكُمۡ فَتَزِلَّ قَدَمُۢ بَعۡدَ ثُبُوتِهَا وَتَذُوقُواْ ٱلسُّوٓءَ بِمَا صَدَدتُّمۡ عَن سَبِيلِ ٱللَّهِ وَلَكُمۡ عَذَابٌ عَظِيمٞ
+وَلَا تَشۡتَرُواْ بِعَهۡدِ ٱللَّهِ ثَمَنٗا قَلِيلًاۚ إِنَّمَا عِندَ ٱللَّهِ هُوَ خَيۡرٞ لَّكُمۡ إِن كُنتُمۡ تَعۡلَمُونَ
+مَا عِندَكُمۡ يَنفَدُ وَمَا عِندَ ٱللَّهِ بَاقٖۗ وَلَنَجۡزِيَنَّ ٱلَّذِينَ صَبَرُوٓاْ أَجۡرَهُم بِأَحۡسَنِ مَا كَانُواْ يَعۡمَلُونَ
+مَنۡ عَمِلَ صَٰلِحٗا مِّن ذَكَرٍ أَوۡ أُنثَىٰ وَهُوَ مُؤۡمِنٞ فَلَنُحۡيِيَنَّهُۥ حَيَوٰةٗ طَيِّبَةٗۖ وَلَنَجۡزِيَنَّهُمۡ أَجۡرَهُم بِأَحۡسَنِ مَا كَانُواْ يَعۡمَلُونَ
+فَإِذَا قَرَأۡتَ ٱلۡقُرۡءَانَ فَٱسۡتَعِذۡ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ
+إِنَّهُۥ لَيۡسَ لَهُۥ سُلۡطَٰنٌ عَلَى ٱلَّذِينَ ءَامَنُواْ وَعَلَىٰ رَبِّهِمۡ يَتَوَكَّلُونَ
+إِنَّمَا سُلۡطَٰنُهُۥ عَلَى ٱلَّذِينَ يَتَوَلَّوۡنَهُۥ وَٱلَّذِينَ هُم بِهِۦ مُشۡرِكُونَ
+وَإِذَا بَدَّلۡنَآ ءَايَةٗ مَّكَانَ ءَايَةٖ وَٱللَّهُ أَعۡلَمُ بِمَا يُنَزِّلُ قَالُوٓاْ إِنَّمَآ أَنتَ مُفۡتَرِۭۚ بَلۡ أَكۡثَرُهُمۡ لَا يَعۡلَمُونَ
+قُلۡ نَزَّلَهُۥ رُوحُ ٱلۡقُدُسِ مِن رَّبِّكَ بِٱلۡحَقِّ لِيُثَبِّتَ ٱلَّذِينَ ءَامَنُواْ وَهُدٗى وَبُشۡرَىٰ لِلۡمُسۡلِمِينَ
+وَلَقَدۡ نَعۡلَمُ أَنَّهُمۡ يَقُولُونَ إِنَّمَا يُعَلِّمُهُۥ بَشَرٞۗ لِّسَانُ ٱلَّذِي يُلۡحِدُونَ إِلَيۡهِ أَعۡجَمِيّٞ وَهَٰذَا لِسَانٌ عَرَبِيّٞ مُّبِينٌ
+إِنَّ ٱلَّذِينَ لَا يُؤۡمِنُونَ بِـَٔايَٰتِ ٱللَّهِ لَا يَهۡدِيهِمُ ٱللَّهُ وَلَهُمۡ عَذَابٌ أَلِيمٌ
+إِنَّمَا يَفۡتَرِي ٱلۡكَذِبَ ٱلَّذِينَ لَا يُؤۡمِنُونَ بِـَٔايَٰتِ ٱللَّهِۖ وَأُوْلَـٰٓئِكَ هُمُ ٱلۡكَٰذِبُونَ
+مَن كَفَرَ بِٱللَّهِ مِنۢ بَعۡدِ إِيمَٰنِهِۦٓ إِلَّا مَنۡ أُكۡرِهَ وَقَلۡبُهُۥ مُطۡمَئِنُّۢ بِٱلۡإِيمَٰنِ وَلَٰكِن مَّن شَرَحَ بِٱلۡكُفۡرِ صَدۡرٗا فَعَلَيۡهِمۡ غَضَبٞ مِّنَ ٱللَّهِ وَلَهُمۡ عَذَابٌ عَظِيمٞ
+ذَٰلِكَ بِأَنَّهُمُ ٱسۡتَحَبُّواْ ٱلۡحَيَوٰةَ ٱلدُّنۡيَا عَلَى ٱلۡأٓخِرَةِ وَأَنَّ ٱللَّهَ لَا يَهۡدِي ٱلۡقَوۡمَ ٱلۡكَٰفِرِينَ
+أُوْلَـٰٓئِكَ ٱلَّذِينَ طَبَعَ ٱللَّهُ عَلَىٰ قُلُوبِهِمۡ وَسَمۡعِهِمۡ وَأَبۡصَٰرِهِمۡۖ وَأُوْلَـٰٓئِكَ هُمُ ٱلۡغَٰفِلُونَ
+لَا جَرَمَ أَنَّهُمۡ فِي ٱلۡأٓخِرَةِ هُمُ ٱلۡخَٰسِرُونَ
+ثُمَّ إِنَّ رَبَّكَ لِلَّذِينَ هَاجَرُواْ مِنۢ بَعۡدِ مَا فُتِنُواْ ثُمَّ جَٰهَدُواْ وَصَبَرُوٓاْ إِنَّ رَبَّكَ مِنۢ بَعۡدِهَا لَغَفُورٞ رَّحِيمٞ
+۞يَوۡمَ تَأۡتِي كُلُّ نَفۡسٖ تُجَٰدِلُ عَن نَّفۡسِهَا وَتُوَفَّىٰ كُلُّ نَفۡسٖ مَّا عَمِلَتۡ وَهُمۡ لَا يُظۡلَمُونَ
+وَضَرَبَ ٱللَّهُ مَثَلٗا قَرۡيَةٗ كَانَتۡ ءَامِنَةٗ مُّطۡمَئِنَّةٗ يَأۡتِيهَا رِزۡقُهَا رَغَدٗا مِّن كُلِّ مَكَانٖ فَكَفَرَتۡ بِأَنۡعُمِ ٱللَّهِ فَأَذَٰقَهَا ٱللَّهُ لِبَاسَ ٱلۡجُوعِ وَٱلۡخَوۡفِ بِمَا كَانُواْ يَصۡنَعُونَ
+وَلَقَدۡ جَآءَهُمۡ رَسُولٞ مِّنۡهُمۡ فَكَذَّبُوهُ فَأَخَذَهُمُ ٱلۡعَذَابُ وَهُمۡ ظَٰلِمُونَ
+فَكُلُواْ مِمَّا رَزَقَكُمُ ٱللَّهُ حَلَٰلٗا طَيِّبٗا وَٱشۡكُرُواْ نِعۡمَتَ ٱللَّهِ إِن كُنتُمۡ إِيَّاهُ تَعۡبُدُونَ
+إِنَّمَا حَرَّمَ عَلَيۡكُمُ ٱلۡمَيۡتَةَ وَٱلدَّمَ وَلَحۡمَ ٱلۡخِنزِيرِ وَمَآ أُهِلَّ لِغَيۡرِ ٱللَّهِ بِهِۦۖ فَمَنِ ٱضۡطُرَّ غَيۡرَ بَاغٖ وَلَا عَادٖ فَإِنَّ ٱللَّهَ غَفُورٞ رَّحِيمٞ
+وَلَا تَقُولُواْ لِمَا تَصِفُ أَلۡسِنَتُكُمُ ٱلۡكَذِبَ هَٰذَا حَلَٰلٞ وَهَٰذَا حَرَامٞ لِّتَفۡتَرُواْ عَلَى ٱللَّهِ ٱلۡكَذِبَۚ إِنَّ ٱلَّذِينَ يَفۡتَرُونَ عَلَى ٱللَّهِ ٱلۡكَذِبَ لَا يُفۡلِحُونَ
+مَتَٰعٞ قَلِيلٞ وَلَهُمۡ عَذَابٌ أَلِيمٞ
+وَعَلَى ٱلَّذِينَ هَادُواْ حَرَّمۡنَا مَا قَصَصۡنَا عَلَيۡكَ مِن قَبۡلُۖ وَمَا ظَلَمۡنَٰهُمۡ وَلَٰكِن كَانُوٓاْ أَنفُسَهُمۡ يَظۡلِمُونَ
+ثُمَّ إِنَّ رَبَّكَ لِلَّذِينَ عَمِلُواْ ٱلسُّوٓءَ بِجَهَٰلَةٖ ثُمَّ تَابُواْ مِنۢ بَعۡدِ ذَٰلِكَ وَأَصۡلَحُوٓاْ إِنَّ رَبَّكَ مِنۢ بَعۡدِهَا لَغَفُورٞ رَّحِيمٌ
+إِنَّ إِبۡرَٰهِيمَ كَانَ أُمَّةٗ قَانِتٗا لِّلَّهِ حَنِيفٗا وَلَمۡ يَكُ مِنَ ٱلۡمُشۡرِكِينَ
+شَاكِرٗا لِّأَنۡعُمِهِۚ ٱجۡتَبَىٰهُ وَهَدَىٰهُ إِلَىٰ صِرَٰطٖ مُّسۡتَقِيمٖ
+وَءَاتَيۡنَٰهُ فِي ٱلدُّنۡيَا حَسَنَةٗۖ وَإِنَّهُۥ فِي ٱلۡأٓخِرَةِ لَمِنَ ٱلصَّـٰلِحِينَ
+ثُمَّ أَوۡحَيۡنَآ إِلَيۡكَ أَنِ ٱتَّبِعۡ مِلَّةَ إِبۡرَٰهِيمَ حَنِيفٗاۖ وَمَا كَانَ مِنَ ٱلۡمُشۡرِكِينَ
+إِنَّمَا جُعِلَ ٱلسَّبۡتُ عَلَى ٱلَّذِينَ ٱخۡتَلَفُواْ فِيهِۚ وَإِنَّ رَبَّكَ لَيَحۡكُمُ بَيۡنَهُمۡ يَوۡمَ ٱلۡقِيَٰمَةِ فِيمَا كَانُواْ فِيهِ يَخۡتَلِفُونَ
+ٱدۡعُ إِلَىٰ سَبِيلِ رَبِّكَ بِٱلۡحِكۡمَةِ وَٱلۡمَوۡعِظَةِ ٱلۡحَسَنَةِۖ وَجَٰدِلۡهُم بِٱلَّتِي هِيَ أَحۡسَنُۚ إِنَّ رَبَّكَ هُوَ أَعۡلَمُ بِمَن ضَلَّ عَن سَبِيلِهِۦ وَهُوَ أَعۡلَمُ بِٱلۡمُهۡتَدِينَ
+وَإِنۡ عَاقَبۡتُمۡ فَعَاقِبُواْ بِمِثۡلِ مَا عُوقِبۡتُم بِهِۦۖ وَلَئِن صَبَرۡتُمۡ لَهُوَ خَيۡرٞ لِّلصَّـٰبِرِينَ
+وَٱصۡبِرۡ وَمَا صَبۡرُكَ إِلَّا بِٱللَّهِۚ وَلَا تَحۡزَنۡ عَلَيۡهِمۡ وَلَا تَكُ فِي ضَيۡقٖ مِّمَّا يَمۡكُرُونَ
+إِنَّ ٱللَّهَ مَعَ ٱلَّذِينَ ٱتَّقَواْ وَّٱلَّذِينَ هُم مُّحۡسِنُونَ
+```
+---
+## An-Nahl
+```read
+The command of Allah is coming, so be not impatient for it. Exalted is He and high above what they associate with Him
+He sends down the angels, with the inspiration of His command, upon whom He wills of His servants, [telling them], "Warn that there is no deity except Me; so fear Me
+He created the heavens and earth in truth. High is He above what they associate with Him
+He created man from a sperm-drop; then at once, he is a clear adversary
+And the grazing livestock He has created for you; in them is warmth and [numerous] benefits, and from them you eat
+And for you in them is [the enjoyment of] beauty when you bring them in [for the evening] and when you send them out [to pasture]
+And they carry your loads to a land you could not have reached except with difficulty to yourselves. Indeed, your Lord is Kind and Merciful
+And [He created] the horses, mules and donkeys for you to ride and [as] adornment. And He creates that which you do not know
+And upon Allah is the direction of the [right] way, and among the various paths are those deviating. And if He willed, He could have guided you all
+It is He who sends down rain from the sky; from it is drink and from it is foliage in which you pasture [animals]
+He causes to grow for you thereby the crops, olives, palm trees, grapevines, and from all the fruits. Indeed in that is a sign for a people who give thought
+And He has subjected for you the night and day and the sun and moon, and the stars are subjected by His command. Indeed in that are signs for a people who reason
+And [He has subjected] whatever He multiplied for you on the earth of varying colors. Indeed in that is a sign for a people who remember
+And it is He who subjected the sea for you to eat from it tender meat and to extract from it ornaments which you wear. And you see the ships plowing through it, and [He subjected it] that you may seek of His bounty; and perhaps you will be grateful
+And He has cast into the earth firmly set mountains, lest it shift with you, and [made] rivers and roads, that you may be guided
+And landmarks. And by the stars they are [also] guided
+Then is He who creates like one who does not create? So will you not be reminded
+And if you should count the favors of Allah, you could not enumerate them. Indeed, Allah is Forgiving and Merciful
+And Allah knows what you conceal and what you declare
+And those they invoke other than Allah create nothing, and they [themselves] are created
+They are, [in fact], dead, not alive, and they do not perceive when they will be resurrected
+Your god is one God. But those who do not believe in the Hereafter - their hearts are disapproving, and they are arrogant
+Assuredly, Allah knows what they conceal and what they declare. Indeed, He does not like the arrogant
+And when it is said to them, "What has your Lord sent down?" They say, "Legends of the former peoples
+That they may bear their own burdens in full on the Day of Resurrection and some of the burdens of those whom they misguide without knowledge. Unquestionably, evil is that which they bear
+Those before them had already plotted, but Allah came at their building from the foundations, so the roof fell upon them from above them, and the punishment came to them from where they did not perceive
+Then on the Day of Resurrection He will disgrace them and say, "Where are My 'partners' for whom you used to oppose [the believers]?" Those who were given knowledge will say, "Indeed disgrace, this Day, and evil are upon the disbelievers
+The ones whom the angels take in death [while] wronging themselves, and [who] then offer submission, [saying], "We were not doing any evil." But, yes! Indeed, Allah is Knowing of what you used to do
+So enter the gates of Hell to abide eternally therein, and how wretched is the residence of the arrogant
+And it will be said to those who feared Allah, "What did your Lord send down?" They will say, "[That which is] good." For those who do good in this world is good; and the home of the Hereafter is better. And how excellent is the home of the righteous
+Gardens of perpetual residence, which they will enter, beneath which rivers flow. They will have therein whatever they wish. Thus does Allah reward the righteous
+The ones whom the angels take in death, [being] good and pure; [the angels] will say, "Peace be upon you. Enter Paradise for what you used to do
+Do the disbelievers await [anything] except that the angels should come to them or there comes the command of your Lord? Thus did those do before them. And Allah wronged them not, but they had been wronging themselves
+So they were struck by the evil consequences of what they did and were enveloped by what they used to ridicule
+And those who associate others with Allah say, "If Allah had willed, we would not have worshipped anything other than Him, neither we nor our fathers, nor would we have forbidden anything through other than Him." Thus did those do before them. So is there upon the messengers except [the duty of] clear notification
+And We certainly sent into every nation a messenger, [saying], "Worship Allah and avoid Taghut." And among them were those whom Allah guided, and among them were those upon whom error was [deservedly] decreed. So proceed through the earth and observe how was the end of the deniers
+[Even] if you should strive for their guidance, [O Muhammad], indeed, Allah does not guide those He sends astray, and they will have no helpers
+And they swear by Allah their strongest oaths [that] Allah will not resurrect one who dies. But yes - [it is] a true promise [binding] upon Him, but most of the people do not know
+[It is] so He will make clear to them [the truth of] that wherein they differ and so those who have disbelieved may know that they were liars
+Indeed, Our word to a thing when We intend it is but that We say to it, "Be," and it is
+And those who emigrated for [the cause of] Allah after they had been wronged - We will surely settle them in this world in a good place; but the reward of the Hereafter is greater, if only they could know
+[They are] those who endured patiently and upon their Lord relied
+And We sent not before you except men to whom We revealed [Our message]. So ask the people of the message if you do not know
+[We sent them] with clear proofs and written ordinances. And We revealed to you the message that you may make clear to the people what was sent down to them and that they might give thought
+Then, do those who have planned evil deeds feel secure that Allah will not cause the earth to swallow them or that the punishment will not come upon them from where they do not perceive
+Or that He would not seize them during their [usual] activity, and they could not cause failure
+Or that He would not seize them gradually [in a state of dread]? But indeed, your Lord is Kind and Merciful
+Have they not considered what things Allah has created? Their shadows incline to the right and to the left, prostrating to Allah, while they are humble
+And to Allah prostrates whatever is in the heavens and whatever is on the earth of creatures, and the angels [as well], and they are not arrogant
+They fear their Lord above them, and they do what they are commanded
+And Allah has said, "Do not take for yourselves two deities. He is but one God, so fear only Me
+And to Him belongs whatever is in the heavens and the earth, and to Him is [due] worship constantly. Then is it other than Allah that you fear
+And whatever you have of favor - it is from Allah. Then when adversity touches you, to Him you cry for help
+Then when He removes the adversity from you, at once a party of you associates others with their Lord
+So they will deny what We have given them. Then enjoy yourselves, for you are going to know
+And they assign to what they do not know a portion of that which We have provided them. By Allah, you will surely be questioned about what you used to invent
+And they attribute to Allah daughters - exalted is He - and for them is what they desire
+And when one of them is informed of [the birth of] a female, his face becomes dark, and he suppresses grief
+He hides himself from the people because of the ill of which he has been informed. Should he keep it in humiliation or bury it in the ground? Unquestionably, evil is what they decide
+For those who do not believe in the Hereafter is the description of evil; and for Allah is the highest attribute. And He is Exalted in Might, the Wise
+And if Allah were to impose blame on the people for their wrongdoing, He would not have left upon the earth any creature, but He defers them for a specified term. And when their term has come, they will not remain behind an hour, nor will they precede [it]
+And they attribute to Allah that which they dislike, and their tongues assert the lie that they will have the best [from Him]. Assuredly, they will have the Fire, and they will be [therein] neglected
+By Allah, We did certainly send [messengers] to nations before you, but Satan made their deeds attractive to them. And he is the disbelievers' ally today [as well], and they will have a painful punishment
+And We have not revealed to you the Book, [O Muhammad], except for you to make clear to them that wherein they have differed and as guidance and mercy for a people who believe
+And Allah has sent down rain from the sky and given life thereby to the earth after its lifelessness. Indeed in that is a sign for a people who listen
+And indeed, for you in grazing livestock is a lesson. We give you drink from what is in their bellies - between excretion and blood - pure milk, palatable to drinkers
+And from the fruits of the palm trees and grapevines you take intoxicant and good provision. Indeed in that is a sign for a people who reason
+And your Lord inspired to the bee, "Take for yourself among the mountains, houses, and among the trees and [in] that which they construct
+Then eat from all the fruits and follow the ways of your Lord laid down [for you]." There emerges from their bellies a drink, varying in colors, in which there is healing for people. Indeed in that is a sign for a people who give thought
+And Allah created you; then He will take you in death. And among you is he who is reversed to the most decrepit [old] age so that he will not know, after [having had] knowledge, a thing. Indeed, Allah is Knowing and Competent
+And Allah has favored some of you over others in provision. But those who were favored would not hand over their provision to those whom their right hands possess so they would be equal to them therein. Then is it the favor of Allah they reject
+And Allah has made for you from yourselves mates and has made for you from your mates sons and grandchildren and has provided for you from the good things. Then in falsehood do they believe and in the favor of Allah they disbelieve
+And they worship besides Allah that which does not possess for them [the power of] provision from the heavens and the earth at all, and [in fact], they are unable
+So do not assert similarities to Allah. Indeed, Allah knows and you do not know
+Allah presents an example: a slave [who is] owned and unable to do a thing and he to whom We have provided from Us good provision, so he spends from it secretly and publicly. Can they be equal? Praise to Allah! But most of them do not know
+And Allah presents an example of two men, one of them dumb and unable to do a thing, while he is a burden to his guardian. Wherever he directs him, he brings no good. Is he equal to one who commands justice, while he is on a straight path
+And to Allah belongs the unseen [aspects] of the heavens and the earth. And the command for the Hour is not but as a glance of the eye or even nearer. Indeed, Allah is over all things competent
+And Allah has extracted you from the wombs of your mothers not knowing a thing, and He made for you hearing and vision and intellect that perhaps you would be grateful
+Do they not see the birds controlled in the atmosphere of the sky? None holds them up except Allah. Indeed in that are signs for a people who believe
+And Allah has made for you from your homes a place of rest and made for you from the hides of the animals tents which you find light on your day of travel and your day of encampment; and from their wool, fur and hair is furnishing and enjoyment for a time
+And Allah has made for you, from that which He has created, shadows and has made for you from the mountains, shelters and has made for you garments which protect you from the heat and garments which protect you from your [enemy in] battle. Thus does He complete His favor upon you that you might submit [to Him]
+But if they turn away, [O Muhammad] - then only upon you is [responsibility for] clear notification
+They recognize the favor of Allah; then they deny it. And most of them are disbelievers
+And [mention] the Day when We will resurrect from every nation a witness. Then it will not be permitted to the disbelievers [to apologize or make excuses], nor will they be asked to appease [Allah]
+And when those who wronged see the punishment, it will not be lightened for them, nor will they be reprieved
+And when those who associated others with Allah see their "partners," they will say," Our Lord, these are our partners [to You] whom we used to invoke besides You." But they will throw at them the statement, "Indeed, you are liars
+And they will impart to Allah that Day [their] submission, and lost from them is what they used to invent
+Those who disbelieved and averted [others] from the way of Allah - We will increase them in punishment over [their] punishment for what corruption they were causing
+And [mention] the Day when We will resurrect among every nation a witness over them from themselves. And We will bring you, [O Muhammad], as a witness over your nation. And We have sent down to you the Book as clarification for all things and as guidance and mercy and good tidings for the Muslims
+Indeed, Allah orders justice and good conduct and giving to relatives and forbids immorality and bad conduct and oppression. He admonishes you that perhaps you will be reminded
+And fulfill the covenant of Allah when you have taken it, [O believers], and do not break oaths after their confirmation while you have made Allah, over you, a witness. Indeed, Allah knows what you do
+And do not be like she who untwisted her spun thread after it was strong [by] taking your oaths as [means of] deceit between you because one community is more plentiful [in number or wealth] than another community. Allah only tries you thereby. And He will surely make clear to you on the Day of Resurrection that over which you used to differ
+And if Allah had willed, He could have made you [of] one religion, but He causes to stray whom He wills and guides whom He wills. And you will surely be questioned about what you used to do
+And do not take your oaths as [means of] deceit between you, lest a foot slip after it was [once] firm, and you would taste evil [in this world] for what [people] you diverted from the way of Allah, and you would have [in the Hereafter] a great punishment
+And do not exchange the covenant of Allah for a small price. Indeed, what is with Allah is best for you, if only you could know
+Whatever you have will end, but what Allah has is lasting. And We will surely give those who were patient their reward according to the best of what they used to do
+Whoever does righteousness, whether male or female, while he is a believer - We will surely cause him to live a good life, and We will surely give them their reward [in the Hereafter] according to the best of what they used to do
+So when you recite the Qur'an, [first] seek refuge in Allah from Satan, the expelled [from His mercy]
+Indeed, there is for him no authority over those who have believed and rely upon their Lord
+His authority is only over those who take him as an ally and those who through him associate others with Allah
+And when We substitute a verse in place of a verse - and Allah is most knowing of what He sends down - they say, "You, [O Muhammad], are but an inventor [of lies]." But most of them do not know
+Say, [O Muhammad], "The Pure Spirit has brought it down from your Lord in truth to make firm those who believe and as guidance and good tidings to the Muslims
+And We certainly know that they say, "It is only a human being who teaches the Prophet." The tongue of the one they refer to is foreign, and this Qur'an is [in] a clear Arabic language
+Indeed, those who do not believe in the verses of Allah - Allah will not guide them, and for them is a painful punishment
+They only invent falsehood who do not believe in the verses of Allah, and it is those who are the liars
+Whoever disbelieves in Allah after his belief... except for one who is forced [to renounce his religion] while his heart is secure in faith. But those who [willingly] open their breasts to disbelief, upon them is wrath from Allah, and for them is a great punishment
+That is because they preferred the worldly life over the Hereafter and that Allah does not guide the disbelieving people
+Those are the ones over whose hearts and hearing and vision Allah has sealed, and it is those who are the heedless
+Assuredly, it is they, in the Hereafter, who will be the losers
+Then, indeed your Lord, to those who emigrated after they had been compelled [to renounce their religion] and thereafter fought [for the cause of Allah] and were patient - indeed, your Lord, after that, is Forgiving and Merciful
+On the Day when every soul will come disputing for itself, and every soul will be fully compensated for what it did, and they will not be wronged
+And Allah presents an example: a city which was safe and secure, its provision coming to it in abundance from every location, but it denied the favors of Allah. So Allah made it taste the envelopment of hunger and fear for what they had been doing
+And there had certainly come to them a Messenger from among themselves, but they denied him; so punishment overtook them while they were wrongdoers
+Then eat of what Allah has provided for you [which is] lawful and good. And be grateful for the favor of Allah, if it is [indeed] Him that you worship
+He has only forbidden to you dead animals, blood, the flesh of swine, and that which has been dedicated to other than Allah. But whoever is forced [by necessity], neither desiring [it] nor transgressing [its limit] - then indeed, Allah is Forgiving and Merciful
+And do not say about what your tongues assert of untruth, "This is lawful and this is unlawful," to invent falsehood about Allah. Indeed, those who invent falsehood about Allah will not succeed
+[It is but] a brief enjoyment, and they will have a painful punishment
+And to those who are Jews We have prohibited that which We related to you before. And We did not wrong them [thereby], but they were wronging themselves
+Then, indeed your Lord, to those who have done wrong out of ignorance and then repent after that and correct themselves - indeed, your Lord, thereafter, is Forgiving and Merciful
+Indeed, Abraham was a [comprehensive] leader, devoutly obedient to Allah, inclining toward truth, and he was not of those who associate others with Allah
+[He was] grateful for His favors. Allah chose him and guided him to a straight path
+And We gave him good in this world, and indeed, in the Hereafter he will be among the righteous
+Then We revealed to you, [O Muhammad], to follow the religion of Abraham, inclining toward truth; and he was not of those who associate with Allah
+The sabbath was only appointed for those who differed over it. And indeed, your Lord will judge between them on the Day of Resurrection concerning that over which they used to differ
+Invite to the way of your Lord with wisdom and good instruction, and argue with them in a way that is best. Indeed, your Lord is most knowing of who has strayed from His way, and He is most knowing of who is [rightly] guided
+And if you punish [an enemy, O believers], punish with an equivalent of that with which you were harmed. But if you are patient - it is better for those who are patient
+And be patient, [O Muhammad], and your patience is not but through Allah. And do not grieve over them and do not be in distress over what they conspire
+Indeed, Allah is with those who fear Him and those who are doers of good
+```n

@@ -1,0 +1,379 @@
+# MERYEM مريم ( Meryem ) 
+---
+- Sure Adı : MERYEM
+- Sure No : 19
+- Sure Tipi : meccan
+- Sure Ayet Sayısı : 98
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+KAF! HA! YA! AYN! SAD!
+Bu, Rabbinin[*], kulu Zekeriya’ya olan iyiliğinin hikâyesidir.
+O, bir gün Rabbine gizlice yalvarmıştı.
+“Rabbim (Sahibim)!” demişti, “Kemiklerim zayıfladı, saçlarım iyice ağardı. Sana yaptığım dua sayesinde bugüne kadar hiç bunalmadım.
+Benden sonra yerime geçecek olanlardan endişeliyim. Eşim de kısır. Onun için bana, katından yerime geçecek(veli olacak)[1*] birini[2*] bağışla.
+Hem bana, hem Yakup oğullarına mirasçı olsun[*]. Rabbim! Onu beğenilen bir kişi yap.”
+(Melekler dediler ki) “Zekeriya! Sana bir erkek çocuk müjdeliyoruz. Adı Yahya’dır. Daha önce bu adı taşıyan birine rastlamadık.”
+Zekeriya dedi ki “Rabbim! Bana oğlan çocuğu nereden? Eşim kısır, ben de ileri derecede yaşlıyım.”
+“Öyledir” dedi (melekler). Sahibin dedi ki ”O, bana kolaydır. Sen de daha önce hiçbir şey değilken seni yaratmıştım.”
+Dedi ki “Rabbim, bana bir emare(işaret) oluştur.” Dedi ki “Senin emaren, sapasağlam olduğun halde üç gece[1*] geçmeden insanlarla konuşamamandır.”[2*]
+Sonra tapınağın iç odasından[1*] halkının karşısına çıktı, onlara: “Sabah akşam O’na ibadet edin” diye işaret etti.
+(Çocuk büyüyünce dedik ki) “Yahya, Kitap’ı sıkı tut!” Daha çocukken ona doğru karar verme yeteneği (hikmet) vermiştik.
+Ona katımızdan yumuşak huy ve gelişmeye uygun bir yapı[*] verdik. O, kendini korurdu.
+Anasına ve babasına iyilik ederdi; zorba ve dik kafalı değildi.
+Doğduğu gün, ölüm günü ve yeniden diriltileceği gün onun için bir esenlik ve güvenliktir (selamettir).
+Bu Kitap’ta Meryem’in hikâyesini de anlat. Bir gün ailesinden ayrılmış, doğu tarafında bir yere çekilmişti.
+Böylece onlarla kendi arasında bir engel oluşturmuştu. Derken ruhumuzu (Cebrail’i) gönderdik, ona düzgün bir insan gibi göründü.
+Meryem dedi ki “Senden Rahman’a sığınırım, eğer namuslu biri isen”
+Dedi ki “Ben sadece Rabbinin elçisiyim; sana gelişkin bir oğul vermek için geldim.”
+Meryem dedi ki “Benim nereden çocuğum olacak; bana erkek eli değmedi. Yoldan çıkmış biri de değilim.”
+"Öyle olacak! dedi. Rabbin buyurdu ki ‘O, bana kolaydır, onu insanlar için bir belge (ayet) ve katımızdan bir ikram kılacağız.' Bu, kararı verilmiş bir iştir."
+Arkasından ona hamile kaldı. Onunla uzak bir yere çekildi.
+Sonra doğum sancıları onu, hurma ağacına doğru sürükledi. “Keşke daha önce ölseydim de unutulup gitseydim!” dedi.
+(Melek) aşağıdan şöyle seslendi: “Üzülme! Rabbin alt taraftan bir pınar akıttı.
+Bu hurma ağacını kendine doğru salla da üzerine taze olgun hurma dökülsün.
+Haydi, ye, iç; gözün aydın olsun. İnsanlardan birini görürsen de ki ‘Rahman’a oruç adadım; bugün tek bir insanla bile konuşamam.’”
+Çocuğu kucaklayıp halkına getirdi. Dediler ki “Meryem! Kendini iğrenç bir hale düşürmüşsün.
+Ey Harun’un[*] kızkardeşi! Baban kötü bir kişi değildir, anan da yoldan çıkmamıştır.”
+Bunun üzerine Meryem çocuğa işaret etti. Dediler ki “Beşikteki çocukla nasıl konuşalım?”
+Çocuk şöyle dedi: “Ben Allah’ın kuluyum. O, bana kitap verecek ve beni nebi yapacaktır.
+Nerede olursam olayım, beni bereketli kılacaktır. Hayatta olduğum sürece bana namaz ve zekat görevi yükleyecektir.
+“Bana, anama iyi evlat olacağım; zorba ve isyankar olmayacağım bir yapı verdi.”[*]
+Bana selam (esenlik ve güvenlik) olsun doğduğum gün, öleceğim gün ve yeniden diriltileceğim gün.”
+İşte Meryem oğlu İsa; onun hakkında şüphelendikleri şeyin gerçek ifadesi budur.
+Allah’ın çocuk edinmesi olacak iş değildir. O, bundan uzaktır. Allah bir işe karar verdiği zaman onun için sadece “Oluş” der sonra o şey oluşur.
+(İsa dedi ki) “Allah benim Rabbimdir[*], sizin de Rabbinizdir. Öyleyse O’na kul olun; doğru yol budur.”
+İçlerinden farklı kesimler birbirlerine düştüler. Vay haline o büyük günde huzura çıkmayı göz ardı edenlerin.
+Bize gelecekleri gün ne güzel işitecekler ve ne iyi göreceklerdir! Ama yanlışlar içindeki o kimseler bugün açık bir sapkınlık içindedirler.
+İş bitirildiğinde korumasız kalacakları  güne karşı onları uyar. Onlar, olacakların farkında değillerdir. Onlar (söylenenlere) inanmıyorlar.
+Yeryüzüne ve üzerindeki herkese mirasçı olacak olan biziz. Dönüş bizedir.
+Bu Kitap’ta İbrahim’in hikâyesini de anlat. O, özü sözü doğru bir nebi idi.
+Bir gün babasına dedi ki “Ey babacığım! Dinlemeyen ve görmeyen bir şeye neden kulluk ediyorsun? O senin hiçbir ihtiyacını karşılamaz ki!
+Ey babacığım! Sana gelmemiş olan bir bilgi bana geldi. Bana uy da sana düzgün bir yol göstereyim.
+Ey Babacığım! Şeytan’a kulluk etme. Şeytan, Rahman’a baş kaldırmıştır.
+Ey Babacığım! Rahman’dan gelecek bir azabın seni çarpmasından ve senin şeytanın dostu haline gelmenden korkuyorum.”
+Babası dedi ki “İbrahim! Sen benim ilahlarımdan yüz mü çevirdin? Eğer vazgeçmezsen seni taşlayarak öldürürüm. Uzunca bir süre gözüme görünme!”
+İbrahim dedi ki “Esenlik ve güvenlik içinde ol; Rabbimden seni bağışlamasını dileyeceğim. O, bana iyi davranır.
+Sizden de Allah ile aranıza koyup yalvardıklarınızdan da uzaklaşıyorum. Ben Rabbime yalvarırım, Rabbime yaptığım dua sayesinde yoksun kalmayacağımı umuyorum.”
+Onlardan ve Allah’ ile aralarına koyup yalvardıklarından uzaklaşınca ona İshak’ı ve Yakub’u bağışladık. Onların her ikisini de nebi yaptık.
+Onlara da katımızdan bir ikramda bulunduk ve doğru kişilerin, dilden dile anlattıkları yüksek bir değer verdik.
+Bu Kitap’ta Musa’yı da anlat. O, yürekten bağlıydı; nebi olan elçi idi.
+Ona, Tur'un (Sina Dağı’nın) sağ yamacından seslenmiş, özel bir konuşma için yaklaştırmıştık.
+Ona ikramda bulunarak, kardeşi Harun’u da nebi olarak armağan etmiştik.
+Bu Kitap’ta İsmail’i de anlat. O, sözünü tutmuştu[*]; nebi olan elçiydi.
+Ailesine namazı ve zekâtı emreder ve Rabbinin katında beğenilirdi.
+Bu Kitap’ta İdris’i de anlat. O da özü sözü doğru olan bir nebi idi.
+Onu yüce bir yere yükseltmiştik.
+İşte bunlar Allah’ın mutluluk[*] verdiği nebilerdendir; Âdem’in soyundan, Nuh ile birlikte gemiye bindirdiklerimizden, İbrahim’in ve İsrail’in (Yakup’un) soyundan olup kendilerine doğru yolu gösterdiğimiz ve seçtiğimiz kimselerdir. Onlara Rahman’ın ayetleri okununca gözleri dolarak secdeye kapanırlardı.
+Onların arkasından gelenler, arzularına uyarak namazı ihmal ettiler. Onlar, yakında yanlış kurgularıyla yüzleşeceklerdir.
+İçlerinden dönüş yaparak (tevbe ederek) inanıp güvenen ve iyi iş yapmış olanlar Cennet’e girecekler ve hiçbir haksızlığa uğramayacaklardır.
+Rahman’ın kullarına söz verdiği görülmemiş kalıcı cennetlere (bahçelere) gireceklerdir. O’nun sözü yerine getirilir.
+Orada boş söz dinlemeyeceklerdir. Sadece “Selam[*]” sözü. Orada onlar için sabah akşam rızıklar vardır.
+Kullarımızdan Allah’tan çekinerek kendilerini koruyanlara vereceğimiz Cennet, işte budur.
+Biz, Rabbinin emri olmadan inmeyiz. Önümüzde, arkamızda ve ikisinin arasında ne varsa hepsi O’nundur. Senin Rabbin unutkan değildir.
+O, göklerin, yerin ve onların arasında olanların Rabbidir[1*]. Sen O’na kulluk et ve kullukta sebat[2*] et. O’nun adını taşımaya layık[3*] başka birini biliyor musun?
+İnsan der ki “Öldüğümde, gerçekten daha sonra diriltilip çıkarılacak mıyım?”
+O insan, önceleri hiç bir şey değilken kendini yarattığımızı aklına getirmez mi?
+Rabbine yemin olsun ki onları, şeytanlarıyla birlikte toplayacağız. Sonra alevli ateşin çevresinde diz çöktüreceğiz.
+Sonra her sınıfın içinden Rahman’a[*] en güçlü baş kaldıranları çekip ayıracağız.
+Zaten Cehennemde sürekli kalmayı[*] kimin hak ettiğini iyi biliriz"
+Sizden[1*] oraya suya koşarcasına gitmeyecek[2*] yoktur. Bu, Rabbinin uygulamayı üstlendiği kesin hükümdür.
+Allah’tan çekinerek kendini korumuş olanları[*] kurtaracak, yanlışlar içinde olanları da orada diz üstü çökmüş olarak bırakacağız.
+Kendilerine, birbirini açıklayan ayetlerimiz okununca bu kâfirler müminlere şöyle derlerdi: “Bu iki kesimden hangisinin konumu daha iyi, çevresi daha etkindir. (Biz mi,onlar mı?)”
+(Halbuki) Kendilerinden önce nice nesilleri etkisizleştirmiştik, onların evi barkı daha düzgün, görüntüleri daha iyi idi.
+De ki “Kim sapıklık içindeyse varsın Rahman onun süresini uzatsın. Nasıl olsa tehdit edildikleri azabı, ya da kıyamet saatini görünce kimin yerinin daha kötü, kimin arkasının daha zayıf olduğunu öğreneceklerdir.”
+Allah yola gelenlerin yolunu daha da doğrultur. Kalıcı iyi işlerin, Rabbin katındaki sevabı da daha iyi, sonucu da daha iyidir.
+Ayetlerimizi görmezlikten geleni gördün mü? Der ki “Elbette bana mal da verilecek, evlat ta.”
+Bu kimse gizli bilgilere mi ulaştı, yoksa Rahman’ın katından söz mü aldı?
+Böyle şeyler olamaz[*]. Ama biz onun söylediği bu sözü kayda geçireceğiz ve azabına azap ekleyeceğiz.
+Onun sözünü ettiği şeyler (malı ve evladı) bize kalacaktır. Kendisi de karşımıza tek başına gelecektir.
+Destek almak için Allah ile aralarında bir takım ilahlar edindiler.
+Böyle şey olmaz. Onlar (uydurdukları ilahlar), bunların yaptığı kulluğu tanımayacak, bunlara karşı çıkacaklardır.
+Hiç görmedin mi o kâfirlere şeytanları göndeririz de onları sarstıkça sarsarlar?
+Onlara karşı aceleci olma; biz onlar için gün sayıyoruz.
+Allah’tan çekinerek korunanları[1*], Rahman’ın huzurunda, seçkin heyetleri ağırlar gibi[2*] topladığımız günde,
+Günahkarları, suya koşarcasına cehenneme sevk edeceğiz.
+(Orada) Rahman’dan söz almış olanlar[1*] dışında kimse şefaatten yararlanma[2*] hakkına sahip olamayacaktır[3*].
+“Rahman çocuk edindi” dediler.
+Gerçekten çok çirkin bir söz söylediler[*].
+Bundan dolayı[*] neredeyse gökler parçalanacak, yer yarılacak ve dağlar çökecekti.
+Bunlar sırf “Rahman’ın çocuğu var” dedikleri için olacaktı.
+Rahman’ın çocuk edinmesi olacak şey değildir.
+Göklerde ve yerde kim varsa hepsi kul olarak Rahman’nın huzuruna gelirler.
+Allah, onların hepsini teker teker sayıp hesabını çıkarmıştır.
+Hepsi (mezardan) kalkış günü tek başına O’na gelecektir.
+İnanıp güvenen ve iyi iş yapanlar için Rahman, bir sevgi oluşturacaktır.
+Kur’ân’ı senin dilinle kolaylaştırdık ki[1*] kendini koruyanlara[2*] onunla müjde veresin, karşı koyan topluluğu da uyarasın.
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[*]</strong> Sahibinin
+<strong>[1*] </strong>Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#257">Bakara 2/257</a>. Türkçe anlamının aksine Arapça’da veli’nin (çoğul evliya) anlamlarından biri karşılıklı olan dostluk ve karşılıklı olan velayet(yetki) anlamına gelmektedir. Bu ayetteki manası ‘yerime geçecek biri’dir.
+
+	<strong>[2*]</strong> Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#38">Al-i İmran 3/38</a>&nbsp;vd.
+<strong>[*]</strong> Malına değil, kendine ve Yakup oğullarına mirasçı olmasını istediği için bir Nebi dileğinde bulunuyor.&nbsp;
+<strong>[1*]</strong> <a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#41">Ali İmran 3/41</a>. ayette “üç gün” ifadesi geçtiği için ikisi birleşince üç gün üç gece olur.
+
+	<strong>[2*]</strong>&nbsp;"Konuşamaması, bu göstergeyi kendisi için istemesinden dolayıdır. Buraya "konuşmama" şeklinde meal verilemez, çünkü konuşmama, insanın elindedir. Gösterge olması için istediği halde konuşamaması gerekir. Zaten âyetteki "sapasağlam olduğun halde" ifadesi bunu destekliyor. 
+
+	Zekeriya (as) bir işaret istemesinin sebebi bunun nübüvvet dışı bir durum olduğudur ve Nübüvet dışı vahyin (rüya, ilham gibi) kesin olmadığının delilidir.
+<strong>[*] Mihrap, </strong>iç oda demektir.
+<strong>[*]</strong> "Gelişmeye uygun yapı" diye tercüme ettiğimiz زَكَاةً kelimesinin sözlük anlamı hayırlı ve bereketli bir şekilde gelişmektir. (<strong>Müfredat</strong>)
+<strong>[*]</strong> “Kimine göre bu ayette adı geçen Harun, Meryem’in gerçek kardeşidir. Ana babası gibi o da iffetli ve salih bir kimse idi. Bu yüzden işin iç yüzünü bilmeyenler, böyle birinin kız kardeşi olan Meryem’e zina etmeyi asla yakıştıramadıklarını be­lirtmek istemişlerdir.
+
+	Nebimizden rivayet edilen bir hadiste de, İsrâiloğullarında önceki nebilerin ve iyi kimselerin isimlerini çocuklarına ad koyma geleneği olduğu için Meryem’in kardeşine de Harun adı verildiğine işaret edilmiştir. (Ahmed b. Hanbel, 4/252)
+
+	Buna yakın bir yorum da, Meryem’in nebi olan Harun’un soyundan gelmiş olması münasebetiyle kendisine böyle hitap edilmiş olduğu görüşüdür.” (Fahreddin Razi ve Muhammed Esed’den naklen: Hayreddin Karaman v.d., Kur’an Yolu Türkçe Meâl ve Tefsir, Diyanet İşleri Başkanlığı Yayınları, Ankara, 2007, c: 3, s: 597.)
+<strong>[*]</strong> Beşikteki çocuğun bir görev ve sorumluluğu olamayacağı için geçmiş zamanı gösteren fiillere gelecek zaman anlamı verilmiştir.&nbsp; Arap dilinde iltifat denen bu sanat, anlatımı güçlendirmek için sıkça kullanılır.
+<strong>[*] </strong>Sahibimdir
+<strong>[*] </strong>Babasına verdiği o sözü(el va'di) tutmuştu. Bu ayet, kurban olanın İshak değil, İsmail olduğunu gösterir.&nbsp;
+<strong>[*] </strong>Nimet
+<strong>[*]&nbsp;Selam,</strong> Türkçe’de selamet, esenlik ve güvenlik hali demektir. (TDK Sözlük)
+<strong>[1*]</strong> Sahibidir
+
+	<strong>[2*]</strong> Sebat: Sözünden veya kararlarından dönmeme, bir işi sonuna değin sürdürme(TDK Sözlük)
+
+	<strong>[3*]</strong> Müfredat
+<strong>[*]</strong> iyiliği sonuz olana
+[*]Sıliyya = صِلِيًّا’nın kök anlamı sürekliliktir.Namaza salat denmesi sürekli yapılması gereken ibadet olmasından dolayıdır.&nbsp;(Lisan’ul-arab)
+<strong>[1*]</strong>&nbsp;<a href="http://suleymaniyevakfimeali.com/Meal/Meryem.htm#63">Meryem 19/63</a>. âyetin kapsamına girmeyenlerden.
+
+	<strong>[2*]</strong> Buradaki vârid = وَارِد su başına giden” (<strong>Müfredât</strong>) kelimesinden hareketle, ayette, cehenneme girmekten değil, çevresinde toplanmaktan söz edildiği, zaten; “Sonra diz çöktürerek cehennemin çevresine getireceğiz” âyetinin bunu gösterdiği iddia edilir. Cehennem sözlükte, tutuşturulmuş ateş demektir (<strong>Müfredât</strong>).Dolayısıyla ahiretteki cehennemin içi, cehennemlerle dolu olacaktır. Vârid = وَارِد, cehennem ile birlikte kullanılınca suya gider gibi cehenneme gidenleri ifade eder.
+
+	Bir âyet şöyledir: &nbsp;“Firavun kıyamet günü halkının önüne düşecek, suya götürür gibi onları ateşe götürecektir. Başına varılan su ne kötü sudur!” (<a href="http://suleymaniyevakfimeali.com/Meal/Hud.htm#98">Hud 11/98</a>)
+
+	Bu kelime, cehenneme girme anlamına da kullanılmıştır. İlgili âyetlerden biri şudur: &nbsp;َ“Siz ve Allah’tan başka kulluk ettikleriniz cehenneme atılacak şeylerdir. Hepiniz oraya gireceksiniz.” (<a href="http://suleymaniyevakfimeali.com/Meal/Enbiya.htm#98">Enbiya 21/98</a>) &nbsp;
+
+	Sonuç olarak günahı çok olan Müslümanlar da tutuşturulmuş cehennem ateşinin çevresinde toplanacaklardır.
+<strong>[*]</strong> Allah’ın affetmeyeceği şirk günahından kendini korumuş olanları Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Nisa.htm#48">Nisa 4/48</a>, <a href="http://suleymaniyevakfimeali.com/Meal/Nisa.htm#116">Nisa 4/116</a>
+<strong>[*]</strong> <a href="http://suleymaniyevakfimeali.com/Meal/Kehf.htm#26">Kehf 18/26</a>
+<strong>[1*]</strong> <strong>Müttaki</strong>: Allah’tan çekinerek korunanlar, kendini (fıtratını) bozmayanlar. Bkz <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#2">Bakara 2/2</a>.
+
+	<strong>[2*]</strong> Bu ağırlamanın nasıl olacağı <a href="http://suleymaniyevakfimeali.com/Meal/Zuhruf.htm#67">Zuhruf 43/67-73</a> ayetlerinde anlatılmaktadır.
+<strong>[1*]</strong> Şirk günahı işlememiş olanlar. Çünkü “Allah, kendisine ortak koşulmasını (şirki) bağışlamaz. Bunun altında olanları, tercih ettiği kişi için bağışlar.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nisa.htm#48">Nisa 4/48</a>)
+
+	<strong>[2*]</strong> Ayetteki şefaat kelimesi mastar olduğu için ism-i mef'ul anlamı verilmiştir. Çünkü bu durumdaki bir kişinin sahip olabileceği tek şey şefaatten yararlanma hakkıdır.
+
+	<strong>[3*]</strong> <strong>Şefaat</strong>, birinin eşlik etmesini istemek, eşlik etmek veya arka çıkmaktır. (<strong>El-Ayn, Müfredât</strong>). Mahşer günü kimseye şefaat edilmeyecektir.
+
+	“Öyle bir günden çekinip korunun ki o gün kimse kimsenin yerine ceza çekmeyecek, kimseden şefaat kabul edilmeyecek, kimseden fidye alınmayacak ve kimseye yardım edilmeyecektir.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Bakara.htm#64">Bakara 2/48</a>)
+
+	Dünyada insanlar birine destek olabilirler. “İyi bir işe destek veren ondan bir pay alır; kötü bir işe destek veren de ondan dolayı bir sorumluluk üstlenir.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nisa.htm#85">Nisa 4/85</a>)
+
+	Bu ayetlere göre Cennete gitmiş biri, şirk günahı ile değil de diğer günahlarından dolayı cehennemde olan bir yakınını yanına isteyebilir. İster dünyada ister cehenneme gitmiş biri için olsun, şefaat ancak Allah’ın onayıyla olabilir.
+<strong style="margin: 0px; padding: 0px; border: 0px; outline: 0px; vertical-align: baseline; color: rgb(68, 68, 68); font-family: Arial; line-height: 17.4px; background-image: initial; background-attachment: initial; background-size: initial; background-origin: initial; background-clip: initial; background-position: initial; background-repeat: initial;">[*]&nbsp;</strong><a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#64"><font face="Arial">Bakara 2/64</font></a><strong style="margin: 0px; padding: 0px; border: 0px; outline: 0px; vertical-align: baseline; color: rgb(76, 156, 241); text-decoration: none; font-weight: bold; font-family: Arial; line-height: 17.4px; background: transparent;">&nbsp;</strong>iltifat sanatı
+<strong>[*]</strong> Rahmana çocuk isnat etmeleri
+<strong>[1*]</strong> Kullandığı Arapça açısından Kur’an-ı Kerim’in anlatımı, temel konuları her eğitim seviyesinden insanın kolayca anlayabileceği bir yapıdadır. Örneğin doktor olmamanıza rağmen rahimdeki ceninin gelişimini okuyup anlayabilirsiniz; ya da gök bilimci olmamanıza rağmen bu konuda da bilgi edinebilirsiniz. Ancak doktor veya gök bilimci iseniz ilgili konularda ortalama insanlardan çok daha fazla bilgi edinirsiniz. Kur’an’dan ne kadar fazla doğru hüküm (hikmet) elde edilebileceği o konuda çalışma yapan ilim adamlarının oluşturacağı çalışma ekipleri ve onların, Allah’ın yazdığı ve yarattığı ayetleri etraflıca ve metoduna uygun şekilde çalışmasına bağlıdır. (Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/Fussilet.htm#3">Fussilet 41/3</a>)
+
+	<strong>[2*]</strong> Müttaki: Allah’tan çekinerek korunan, kendini(fıtratını) bozmayan. Bkz <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#2">Bakara 2/2</a>.
+```
+---
+## مريم
+```read
+كٓهيعٓصٓ
+ذِكۡرُ رَحۡمَتِ رَبِّكَ عَبۡدَهُۥ زَكَرِيَّآ
+إِذۡ نَادَىٰ رَبَّهُۥ نِدَآءً خَفِيّٗا
+قَالَ رَبِّ إِنِّي وَهَنَ ٱلۡعَظۡمُ مِنِّي وَٱشۡتَعَلَ ٱلرَّأۡسُ شَيۡبٗا وَلَمۡ أَكُنۢ بِدُعَآئِكَ رَبِّ شَقِيّٗا
+وَإِنِّي خِفۡتُ ٱلۡمَوَٰلِيَ مِن وَرَآءِي وَكَانَتِ ٱمۡرَأَتِي عَاقِرٗا فَهَبۡ لِي مِن لَّدُنكَ وَلِيّٗا
+يَرِثُنِي وَيَرِثُ مِنۡ ءَالِ يَعۡقُوبَۖ وَٱجۡعَلۡهُ رَبِّ رَضِيّٗا
+يَٰزَكَرِيَّآ إِنَّا نُبَشِّرُكَ بِغُلَٰمٍ ٱسۡمُهُۥ يَحۡيَىٰ لَمۡ نَجۡعَل لَّهُۥ مِن قَبۡلُ سَمِيّٗا
+قَالَ رَبِّ أَنَّىٰ يَكُونُ لِي غُلَٰمٞ وَكَانَتِ ٱمۡرَأَتِي عَاقِرٗا وَقَدۡ بَلَغۡتُ مِنَ ٱلۡكِبَرِ عِتِيّٗا
+قَالَ كَذَٰلِكَ قَالَ رَبُّكَ هُوَ عَلَيَّ هَيِّنٞ وَقَدۡ خَلَقۡتُكَ مِن قَبۡلُ وَلَمۡ تَكُ شَيۡـٔٗا
+قَالَ رَبِّ ٱجۡعَل لِّيٓ ءَايَةٗۖ قَالَ ءَايَتُكَ أَلَّا تُكَلِّمَ ٱلنَّاسَ ثَلَٰثَ لَيَالٖ سَوِيّٗا
+فَخَرَجَ عَلَىٰ قَوۡمِهِۦ مِنَ ٱلۡمِحۡرَابِ فَأَوۡحَىٰٓ إِلَيۡهِمۡ أَن سَبِّحُواْ بُكۡرَةٗ وَعَشِيّٗا
+يَٰيَحۡيَىٰ خُذِ ٱلۡكِتَٰبَ بِقُوَّةٖۖ وَءَاتَيۡنَٰهُ ٱلۡحُكۡمَ صَبِيّٗا
+وَحَنَانٗا مِّن لَّدُنَّا وَزَكَوٰةٗۖ وَكَانَ تَقِيّٗا
+وَبَرَّۢا بِوَٰلِدَيۡهِ وَلَمۡ يَكُن جَبَّارًا عَصِيّٗا
+وَسَلَٰمٌ عَلَيۡهِ يَوۡمَ وُلِدَ وَيَوۡمَ يَمُوتُ وَيَوۡمَ يُبۡعَثُ حَيّٗا
+وَٱذۡكُرۡ فِي ٱلۡكِتَٰبِ مَرۡيَمَ إِذِ ٱنتَبَذَتۡ مِنۡ أَهۡلِهَا مَكَانٗا شَرۡقِيّٗا
+فَٱتَّخَذَتۡ مِن دُونِهِمۡ حِجَابٗا فَأَرۡسَلۡنَآ إِلَيۡهَا رُوحَنَا فَتَمَثَّلَ لَهَا بَشَرٗا سَوِيّٗا
+قَالَتۡ إِنِّيٓ أَعُوذُ بِٱلرَّحۡمَٰنِ مِنكَ إِن كُنتَ تَقِيّٗا
+قَالَ إِنَّمَآ أَنَا۠ رَسُولُ رَبِّكِ لِأَهَبَ لَكِ غُلَٰمٗا زَكِيّٗا
+قَالَتۡ أَنَّىٰ يَكُونُ لِي غُلَٰمٞ وَلَمۡ يَمۡسَسۡنِي بَشَرٞ وَلَمۡ أَكُ بَغِيّٗا
+قَالَ كَذَٰلِكِ قَالَ رَبُّكِ هُوَ عَلَيَّ هَيِّنٞۖ وَلِنَجۡعَلَهُۥٓ ءَايَةٗ لِّلنَّاسِ وَرَحۡمَةٗ مِّنَّاۚ وَكَانَ أَمۡرٗا مَّقۡضِيّٗا
+۞فَحَمَلَتۡهُ فَٱنتَبَذَتۡ بِهِۦ مَكَانٗا قَصِيّٗا
+فَأَجَآءَهَا ٱلۡمَخَاضُ إِلَىٰ جِذۡعِ ٱلنَّخۡلَةِ قَالَتۡ يَٰلَيۡتَنِي مِتُّ قَبۡلَ هَٰذَا وَكُنتُ نَسۡيٗا مَّنسِيّٗا
+فَنَادَىٰهَا مِن تَحۡتِهَآ أَلَّا تَحۡزَنِي قَدۡ جَعَلَ رَبُّكِ تَحۡتَكِ سَرِيّٗا
+وَهُزِّيٓ إِلَيۡكِ بِجِذۡعِ ٱلنَّخۡلَةِ تُسَٰقِطۡ عَلَيۡكِ رُطَبٗا جَنِيّٗا
+فَكُلِي وَٱشۡرَبِي وَقَرِّي عَيۡنٗاۖ فَإِمَّا تَرَيِنَّ مِنَ ٱلۡبَشَرِ أَحَدٗا فَقُولِيٓ إِنِّي نَذَرۡتُ لِلرَّحۡمَٰنِ صَوۡمٗا فَلَنۡ أُكَلِّمَ ٱلۡيَوۡمَ إِنسِيّٗا
+فَأَتَتۡ بِهِۦ قَوۡمَهَا تَحۡمِلُهُۥۖ قَالُواْ يَٰمَرۡيَمُ لَقَدۡ جِئۡتِ شَيۡـٔٗا فَرِيّٗا
+يَـٰٓأُخۡتَ هَٰرُونَ مَا كَانَ أَبُوكِ ٱمۡرَأَ سَوۡءٖ وَمَا كَانَتۡ أُمُّكِ بَغِيّٗا
+فَأَشَارَتۡ إِلَيۡهِۖ قَالُواْ كَيۡفَ نُكَلِّمُ مَن كَانَ فِي ٱلۡمَهۡدِ صَبِيّٗا
+قَالَ إِنِّي عَبۡدُ ٱللَّهِ ءَاتَىٰنِيَ ٱلۡكِتَٰبَ وَجَعَلَنِي نَبِيّٗا
+وَجَعَلَنِي مُبَارَكًا أَيۡنَ مَا كُنتُ وَأَوۡصَٰنِي بِٱلصَّلَوٰةِ وَٱلزَّكَوٰةِ مَا دُمۡتُ حَيّٗا
+وَبَرَّۢا بِوَٰلِدَتِي وَلَمۡ يَجۡعَلۡنِي جَبَّارٗا شَقِيّٗا
+وَٱلسَّلَٰمُ عَلَيَّ يَوۡمَ وُلِدتُّ وَيَوۡمَ أَمُوتُ وَيَوۡمَ أُبۡعَثُ حَيّٗا
+ذَٰلِكَ عِيسَى ٱبۡنُ مَرۡيَمَۖ قَوۡلَ ٱلۡحَقِّ ٱلَّذِي فِيهِ يَمۡتَرُونَ
+مَا كَانَ لِلَّهِ أَن يَتَّخِذَ مِن وَلَدٖۖ سُبۡحَٰنَهُۥٓۚ إِذَا قَضَىٰٓ أَمۡرٗا فَإِنَّمَا يَقُولُ لَهُۥ كُن فَيَكُونُ
+وَإِنَّ ٱللَّهَ رَبِّي وَرَبُّكُمۡ فَٱعۡبُدُوهُۚ هَٰذَا صِرَٰطٞ مُّسۡتَقِيمٞ
+فَٱخۡتَلَفَ ٱلۡأَحۡزَابُ مِنۢ بَيۡنِهِمۡۖ فَوَيۡلٞ لِّلَّذِينَ كَفَرُواْ مِن مَّشۡهَدِ يَوۡمٍ عَظِيمٍ
+أَسۡمِعۡ بِهِمۡ وَأَبۡصِرۡ يَوۡمَ يَأۡتُونَنَا لَٰكِنِ ٱلظَّـٰلِمُونَ ٱلۡيَوۡمَ فِي ضَلَٰلٖ مُّبِينٖ
+وَأَنذِرۡهُمۡ يَوۡمَ ٱلۡحَسۡرَةِ إِذۡ قُضِيَ ٱلۡأَمۡرُ وَهُمۡ فِي غَفۡلَةٖ وَهُمۡ لَا يُؤۡمِنُونَ
+إِنَّا نَحۡنُ نَرِثُ ٱلۡأَرۡضَ وَمَنۡ عَلَيۡهَا وَإِلَيۡنَا يُرۡجَعُونَ
+وَٱذۡكُرۡ فِي ٱلۡكِتَٰبِ إِبۡرَٰهِيمَۚ إِنَّهُۥ كَانَ صِدِّيقٗا نَّبِيًّا
+إِذۡ قَالَ لِأَبِيهِ يَـٰٓأَبَتِ لِمَ تَعۡبُدُ مَا لَا يَسۡمَعُ وَلَا يُبۡصِرُ وَلَا يُغۡنِي عَنكَ شَيۡـٔٗا
+يَـٰٓأَبَتِ إِنِّي قَدۡ جَآءَنِي مِنَ ٱلۡعِلۡمِ مَا لَمۡ يَأۡتِكَ فَٱتَّبِعۡنِيٓ أَهۡدِكَ صِرَٰطٗا سَوِيّٗا
+يَـٰٓأَبَتِ لَا تَعۡبُدِ ٱلشَّيۡطَٰنَۖ إِنَّ ٱلشَّيۡطَٰنَ كَانَ لِلرَّحۡمَٰنِ عَصِيّٗا
+يَـٰٓأَبَتِ إِنِّيٓ أَخَافُ أَن يَمَسَّكَ عَذَابٞ مِّنَ ٱلرَّحۡمَٰنِ فَتَكُونَ لِلشَّيۡطَٰنِ وَلِيّٗا
+قَالَ أَرَاغِبٌ أَنتَ عَنۡ ءَالِهَتِي يَـٰٓإِبۡرَٰهِيمُۖ لَئِن لَّمۡ تَنتَهِ لَأَرۡجُمَنَّكَۖ وَٱهۡجُرۡنِي مَلِيّٗا
+قَالَ سَلَٰمٌ عَلَيۡكَۖ سَأَسۡتَغۡفِرُ لَكَ رَبِّيٓۖ إِنَّهُۥ كَانَ بِي حَفِيّٗا
+وَأَعۡتَزِلُكُمۡ وَمَا تَدۡعُونَ مِن دُونِ ٱللَّهِ وَأَدۡعُواْ رَبِّي عَسَىٰٓ أَلَّآ أَكُونَ بِدُعَآءِ رَبِّي شَقِيّٗا
+فَلَمَّا ٱعۡتَزَلَهُمۡ وَمَا يَعۡبُدُونَ مِن دُونِ ٱللَّهِ وَهَبۡنَا لَهُۥٓ إِسۡحَٰقَ وَيَعۡقُوبَۖ وَكُلّٗا جَعَلۡنَا نَبِيّٗا
+وَوَهَبۡنَا لَهُم مِّن رَّحۡمَتِنَا وَجَعَلۡنَا لَهُمۡ لِسَانَ صِدۡقٍ عَلِيّٗا
+وَٱذۡكُرۡ فِي ٱلۡكِتَٰبِ مُوسَىٰٓۚ إِنَّهُۥ كَانَ مُخۡلَصٗا وَكَانَ رَسُولٗا نَّبِيّٗا
+وَنَٰدَيۡنَٰهُ مِن جَانِبِ ٱلطُّورِ ٱلۡأَيۡمَنِ وَقَرَّبۡنَٰهُ نَجِيّٗا
+وَوَهَبۡنَا لَهُۥ مِن رَّحۡمَتِنَآ أَخَاهُ هَٰرُونَ نَبِيّٗا
+وَٱذۡكُرۡ فِي ٱلۡكِتَٰبِ إِسۡمَٰعِيلَۚ إِنَّهُۥ كَانَ صَادِقَ ٱلۡوَعۡدِ وَكَانَ رَسُولٗا نَّبِيّٗا
+وَكَانَ يَأۡمُرُ أَهۡلَهُۥ بِٱلصَّلَوٰةِ وَٱلزَّكَوٰةِ وَكَانَ عِندَ رَبِّهِۦ مَرۡضِيّٗا
+وَٱذۡكُرۡ فِي ٱلۡكِتَٰبِ إِدۡرِيسَۚ إِنَّهُۥ كَانَ صِدِّيقٗا نَّبِيّٗا
+وَرَفَعۡنَٰهُ مَكَانًا عَلِيًّا
+أُوْلَـٰٓئِكَ ٱلَّذِينَ أَنۡعَمَ ٱللَّهُ عَلَيۡهِم مِّنَ ٱلنَّبِيِّـۧنَ مِن ذُرِّيَّةِ ءَادَمَ وَمِمَّنۡ حَمَلۡنَا مَعَ نُوحٖ وَمِن ذُرِّيَّةِ إِبۡرَٰهِيمَ وَإِسۡرَـٰٓءِيلَ وَمِمَّنۡ هَدَيۡنَا وَٱجۡتَبَيۡنَآۚ إِذَا تُتۡلَىٰ عَلَيۡهِمۡ ءَايَٰتُ ٱلرَّحۡمَٰنِ خَرُّواْۤ سُجَّدٗاۤ وَبُكِيّٗا۩
+۞فَخَلَفَ مِنۢ بَعۡدِهِمۡ خَلۡفٌ أَضَاعُواْ ٱلصَّلَوٰةَ وَٱتَّبَعُواْ ٱلشَّهَوَٰتِۖ فَسَوۡفَ يَلۡقَوۡنَ غَيًّا
+إِلَّا مَن تَابَ وَءَامَنَ وَعَمِلَ صَٰلِحٗا فَأُوْلَـٰٓئِكَ يَدۡخُلُونَ ٱلۡجَنَّةَ وَلَا يُظۡلَمُونَ شَيۡـٔٗا
+جَنَّـٰتِ عَدۡنٍ ٱلَّتِي وَعَدَ ٱلرَّحۡمَٰنُ عِبَادَهُۥ بِٱلۡغَيۡبِۚ إِنَّهُۥ كَانَ وَعۡدُهُۥ مَأۡتِيّٗا
+لَّا يَسۡمَعُونَ فِيهَا لَغۡوًا إِلَّا سَلَٰمٗاۖ وَلَهُمۡ رِزۡقُهُمۡ فِيهَا بُكۡرَةٗ وَعَشِيّٗا
+تِلۡكَ ٱلۡجَنَّةُ ٱلَّتِي نُورِثُ مِنۡ عِبَادِنَا مَن كَانَ تَقِيّٗا
+وَمَا نَتَنَزَّلُ إِلَّا بِأَمۡرِ رَبِّكَۖ لَهُۥ مَا بَيۡنَ أَيۡدِينَا وَمَا خَلۡفَنَا وَمَا بَيۡنَ ذَٰلِكَۚ وَمَا كَانَ رَبُّكَ نَسِيّٗا
+رَّبُّ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِ وَمَا بَيۡنَهُمَا فَٱعۡبُدۡهُ وَٱصۡطَبِرۡ لِعِبَٰدَتِهِۦۚ هَلۡ تَعۡلَمُ لَهُۥ سَمِيّٗا
+وَيَقُولُ ٱلۡإِنسَٰنُ أَءِذَا مَا مِتُّ لَسَوۡفَ أُخۡرَجُ حَيًّا
+أَوَلَا يَذۡكُرُ ٱلۡإِنسَٰنُ أَنَّا خَلَقۡنَٰهُ مِن قَبۡلُ وَلَمۡ يَكُ شَيۡـٔٗا
+فَوَرَبِّكَ لَنَحۡشُرَنَّهُمۡ وَٱلشَّيَٰطِينَ ثُمَّ لَنُحۡضِرَنَّهُمۡ حَوۡلَ جَهَنَّمَ جِثِيّٗا
+ثُمَّ لَنَنزِعَنَّ مِن كُلِّ شِيعَةٍ أَيُّهُمۡ أَشَدُّ عَلَى ٱلرَّحۡمَٰنِ عِتِيّٗا
+ثُمَّ لَنَحۡنُ أَعۡلَمُ بِٱلَّذِينَ هُمۡ أَوۡلَىٰ بِهَا صِلِيّٗا
+وَإِن مِّنكُمۡ إِلَّا وَارِدُهَاۚ كَانَ عَلَىٰ رَبِّكَ حَتۡمٗا مَّقۡضِيّٗا
+ثُمَّ نُنَجِّي ٱلَّذِينَ ٱتَّقَواْ وَّنَذَرُ ٱلظَّـٰلِمِينَ فِيهَا جِثِيّٗا
+وَإِذَا تُتۡلَىٰ عَلَيۡهِمۡ ءَايَٰتُنَا بَيِّنَٰتٖ قَالَ ٱلَّذِينَ كَفَرُواْ لِلَّذِينَ ءَامَنُوٓاْ أَيُّ ٱلۡفَرِيقَيۡنِ خَيۡرٞ مَّقَامٗا وَأَحۡسَنُ نَدِيّٗا
+وَكَمۡ أَهۡلَكۡنَا قَبۡلَهُم مِّن قَرۡنٍ هُمۡ أَحۡسَنُ أَثَٰثٗا وَرِءۡيٗا
+قُلۡ مَن كَانَ فِي ٱلضَّلَٰلَةِ فَلۡيَمۡدُدۡ لَهُ ٱلرَّحۡمَٰنُ مَدًّاۚ حَتَّىٰٓ إِذَا رَأَوۡاْ مَا يُوعَدُونَ إِمَّا ٱلۡعَذَابَ وَإِمَّا ٱلسَّاعَةَ فَسَيَعۡلَمُونَ مَنۡ هُوَ شَرّٞ مَّكَانٗا وَأَضۡعَفُ جُندٗا
+وَيَزِيدُ ٱللَّهُ ٱلَّذِينَ ٱهۡتَدَوۡاْ هُدٗىۗ وَٱلۡبَٰقِيَٰتُ ٱلصَّـٰلِحَٰتُ خَيۡرٌ عِندَ رَبِّكَ ثَوَابٗا وَخَيۡرٞ مَّرَدًّا
+أَفَرَءَيۡتَ ٱلَّذِي كَفَرَ بِـَٔايَٰتِنَا وَقَالَ لَأُوتَيَنَّ مَالٗا وَوَلَدًا
+أَطَّلَعَ ٱلۡغَيۡبَ أَمِ ٱتَّخَذَ عِندَ ٱلرَّحۡمَٰنِ عَهۡدٗا
+كَلَّاۚ سَنَكۡتُبُ مَا يَقُولُ وَنَمُدُّ لَهُۥ مِنَ ٱلۡعَذَابِ مَدّٗا
+وَنَرِثُهُۥ مَا يَقُولُ وَيَأۡتِينَا فَرۡدٗا
+وَٱتَّخَذُواْ مِن دُونِ ٱللَّهِ ءَالِهَةٗ لِّيَكُونُواْ لَهُمۡ عِزّٗا
+كَلَّاۚ سَيَكۡفُرُونَ بِعِبَادَتِهِمۡ وَيَكُونُونَ عَلَيۡهِمۡ ضِدًّا
+أَلَمۡ تَرَ أَنَّآ أَرۡسَلۡنَا ٱلشَّيَٰطِينَ عَلَى ٱلۡكَٰفِرِينَ تَؤُزُّهُمۡ أَزّٗا
+فَلَا تَعۡجَلۡ عَلَيۡهِمۡۖ إِنَّمَا نَعُدُّ لَهُمۡ عَدّٗا
+يَوۡمَ نَحۡشُرُ ٱلۡمُتَّقِينَ إِلَى ٱلرَّحۡمَٰنِ وَفۡدٗا
+وَنَسُوقُ ٱلۡمُجۡرِمِينَ إِلَىٰ جَهَنَّمَ وِرۡدٗا
+لَّا يَمۡلِكُونَ ٱلشَّفَٰعَةَ إِلَّا مَنِ ٱتَّخَذَ عِندَ ٱلرَّحۡمَٰنِ عَهۡدٗا
+وَقَالُواْ ٱتَّخَذَ ٱلرَّحۡمَٰنُ وَلَدٗا
+لَّقَدۡ جِئۡتُمۡ شَيۡـًٔا إِدّٗا
+تَكَادُ ٱلسَّمَٰوَٰتُ يَتَفَطَّرۡنَ مِنۡهُ وَتَنشَقُّ ٱلۡأَرۡضُ وَتَخِرُّ ٱلۡجِبَالُ هَدًّا
+أَن دَعَوۡاْ لِلرَّحۡمَٰنِ وَلَدٗا
+وَمَا يَنۢبَغِي لِلرَّحۡمَٰنِ أَن يَتَّخِذَ وَلَدًا
+إِن كُلُّ مَن فِي ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِ إِلَّآ ءَاتِي ٱلرَّحۡمَٰنِ عَبۡدٗا
+لَّقَدۡ أَحۡصَىٰهُمۡ وَعَدَّهُمۡ عَدّٗا
+وَكُلُّهُمۡ ءَاتِيهِ يَوۡمَ ٱلۡقِيَٰمَةِ فَرۡدًا
+إِنَّ ٱلَّذِينَ ءَامَنُواْ وَعَمِلُواْ ٱلصَّـٰلِحَٰتِ سَيَجۡعَلُ لَهُمُ ٱلرَّحۡمَٰنُ وُدّٗا
+فَإِنَّمَا يَسَّرۡنَٰهُ بِلِسَانِكَ لِتُبَشِّرَ بِهِ ٱلۡمُتَّقِينَ وَتُنذِرَ بِهِۦ قَوۡمٗا لُّدّٗا
+وَكَمۡ أَهۡلَكۡنَا قَبۡلَهُم مِّن قَرۡنٍ هَلۡ تُحِسُّ مِنۡهُم مِّنۡ أَحَدٍ أَوۡ تَسۡمَعُ لَهُمۡ رِكۡزَۢا
+```
+---
+## Maryam
+```read
+Kaf, Ha, Ya, 'Ayn, Sad
+[This is] a mention of the mercy of your Lord to His servant Zechariah
+When he called to his Lord a private supplication
+He said, "My Lord, indeed my bones have weakened, and my head has filled with white, and never have I been in my supplication to You, my Lord, unhappy
+And indeed, I fear the successors after me, and my wife has been barren, so give me from Yourself an heir
+Who will inherit me and inherit from the family of Jacob. And make him, my Lord, pleasing [to You]
+[He was told], "O Zechariah, indeed We give you good tidings of a boy whose name will be John. We have not assigned to any before [this] name
+He said, "My Lord, how will I have a boy when my wife has been barren and I have reached extreme old age
+[An angel] said, "Thus [it will be]; your Lord says, 'It is easy for Me, for I created you before, while you were nothing
+[Zechariah] said, "My Lord, make for me a sign." He said, "Your sign is that you will not speak to the people for three nights, [being] sound
+So he came out to his people from the prayer chamber and signaled to them to exalt [Allah] in the morning and afternoon
+[Allah] said, "O John, take the Scripture with determination." And We gave him judgement [while yet] a boy
+And affection from Us and purity, and he was fearing of Allah
+And dutiful to his parents, and he was not a disobedient tyrant
+And peace be upon him the day he was born and the day he dies and the day he is raised alive
+And mention, [O Muhammad], in the Book [the story of] Mary, when she withdrew from her family to a place toward the east
+And she took, in seclusion from them, a screen. Then We sent to her Our Angel, and he represented himself to her as a well-proportioned man
+She said, "Indeed, I seek refuge in the Most Merciful from you, [so leave me], if you should be fearing of Allah
+He said, "I am only the messenger of your Lord to give you [news of] a pure boy
+She said, "How can I have a boy while no man has touched me and I have not been unchaste
+He said, "Thus [it will be]; your Lord says, 'It is easy for Me, and We will make him a sign to the people and a mercy from Us. And it is a matter [already] decreed
+So she conceived him, and she withdrew with him to a remote place
+And the pains of childbirth drove her to the trunk of a palm tree. She said, "Oh, I wish I had died before this and was in oblivion, forgotten
+But he called her from below her, "Do not grieve; your Lord has provided beneath you a stream
+And shake toward you the trunk of the palm tree; it will drop upon you ripe, fresh dates
+So eat and drink and be contented. And if you see from among humanity anyone, say, 'Indeed, I have vowed to the Most Merciful abstention, so I will not speak today to [any] man
+Then she brought him to her people, carrying him. They said, "O Mary, you have certainly done a thing unprecedented
+O sister of Aaron, your father was not a man of evil, nor was your mother unchaste
+So she pointed to him. They said, "How can we speak to one who is in the cradle a child
+[Jesus] said, "Indeed, I am the servant of Allah. He has given me the Scripture and made me a prophet
+And He has made me blessed wherever I am and has enjoined upon me prayer and zakah as long as I remain alive
+And [made me] dutiful to my mother, and He has not made me a wretched tyrant
+And peace is on me the day I was born and the day I will die and the day I am raised alive
+That is Jesus, the son of Mary - the word of truth about which they are in dispute
+It is not [befitting] for Allah to take a son; exalted is He! When He decrees an affair, He only says to it, "Be," and it is
+[Jesus said], "And indeed, Allah is my Lord and your Lord, so worship Him. That is a straight path
+Then the factions differed [concerning Jesus] from among them, so woe to those who disbelieved - from the scene of a tremendous Day
+How [clearly] they will hear and see the Day they come to Us, but the wrongdoers today are in clear error
+And warn them, [O Muhammad], of the Day of Regret, when the matter will be concluded; and [yet], they are in [a state of] heedlessness, and they do not believe
+Indeed, it is We who will inherit the earth and whoever is on it, and to Us they will be returned
+And mention in the Book [the story of] Abraham. Indeed, he was a man of truth and a prophet
+[Mention] when he said to his father, "O my father, why do you worship that which does not hear and does not see and will not benefit you at all
+O my father, indeed there has come to me of knowledge that which has not come to you, so follow me; I will guide you to an even path
+O my father, do not worship Satan. Indeed Satan has ever been, to the Most Merciful, disobedient
+O my father, indeed I fear that there will touch you a punishment from the Most Merciful so you would be to Satan a companion [in Hellfire]
+[His father] said, "Have you no desire for my gods, O Abraham? If you do not desist, I will surely stone you, so avoid me a prolonged time
+[Abraham] said, "Peace will be upon you. I will ask forgiveness for you of my Lord. Indeed, He is ever gracious to me
+And I will leave you and those you invoke other than Allah and will invoke my Lord. I expect that I will not be in invocation to my Lord unhappy
+So when he had left them and those they worshipped other than Allah, We gave him Isaac and Jacob, and each [of them] We made a prophet
+And We gave them of Our mercy, and we made for them a reputation of high honor
+And mention in the Book, Moses. Indeed, he was chosen, and he was a messenger and a prophet
+And We called him from the side of the mount at [his] right and brought him near, confiding [to him]
+And We gave him out of Our mercy his brother Aaron as a prophet
+And mention in the Book, Ishmael. Indeed, he was true to his promise, and he was a messenger and a prophet
+And he used to enjoin on his people prayer and zakah and was to his Lord pleasing
+And mention in the Book, Idrees. Indeed, he was a man of truth and a prophet
+And We raised him to a high station
+Those were the ones upon whom Allah bestowed favor from among the prophets of the descendants of Adam and of those We carried [in the ship] with Noah, and of the descendants of Abraham and Israel, and of those whom We guided and chose. When the verses of the Most Merciful were recited to them, they fell in prostration and weeping
+But there came after them successors who neglected prayer and pursued desires; so they are going to meet evil
+Except those who repent, believe and do righteousness; for those will enter Paradise and will not be wronged at all
+[Therein are] gardens of perpetual residence which the Most Merciful has promised His servants in the unseen. Indeed, His promise has ever been coming
+They will not hear therein any ill speech - only [greetings of] peace - and they will have their provision therein, morning and afternoon
+That is Paradise, which We give as inheritance to those of Our servants who were fearing of Allah
+[Gabriel said], "And we [angels] descend not except by the order of your Lord. To Him belongs that before us and that behind us and what is in between. And never is your Lord forgetful
+Lord of the heavens and the earth and whatever is between them - so worship Him and have patience for His worship. Do you know of any similarity to Him
+And the disbeliever says, "When I have died, am I going to be brought forth alive
+Does man not remember that We created him before, while he was nothing
+So by your Lord, We will surely gather them and the devils; then We will bring them to be present around Hell upon their knees
+Then We will surely extract from every sect those of them who were worst against the Most Merciful in insolence
+Then, surely it is We who are most knowing of those most worthy of burning therein
+And there is none of you except he will come to it. This is upon your Lord an inevitability decreed
+Then We will save those who feared Allah and leave the wrongdoers within it, on their knees
+And when Our verses are recited to them as clear evidences, those who disbelieve say to those who believe, "Which of [our] two parties is best in position and best in association
+And how many a generation have We destroyed before them who were better in possessions and [outward] appearance
+Say, "Whoever is in error - let the Most Merciful extend for him an extension [in wealth and time] until, when they see that which they were promised - either punishment [in this world] or the Hour [of resurrection] - they will come to know who is worst in position and weaker in soldiers
+And Allah increases those who were guided, in guidance, and the enduring good deeds are better to your Lord for reward and better for recourse
+Then, have you seen he who disbelieved in Our verses and said, "I will surely be given wealth and children [in the next life]
+Has he looked into the unseen, or has he taken from the Most Merciful a promise
+No! We will record what he says and extend for him from the punishment extensively
+And We will inherit him [in] what he mentions, and he will come to Us alone
+And they have taken besides Allah [false] deities that they would be for them [a source of] honor
+No! Those "gods" will deny their worship of them and will be against them opponents [on the Day of Judgement]
+Do you not see that We have sent the devils upon the disbelievers, inciting them to [evil] with [constant] incitement
+So be not impatient over them. We only count out to them a [limited] number
+On the Day We will gather the righteous to the Most Merciful as a delegation
+And will drive the criminals to Hell in thirst
+None will have [power of] intercession except he who had taken from the Most Merciful a covenant
+And they say, "The Most Merciful has taken [for Himself] a son
+You have done an atrocious thing
+The heavens almost rupture therefrom and the earth splits open and the mountains collapse in devastation
+That they attribute to the Most Merciful a son
+And it is not appropriate for the Most Merciful that He should take a son
+There is no one in the heavens and earth but that he comes to the Most Merciful as a servant
+He has enumerated them and counted them a [full] counting
+And all of them are coming to Him on the Day of Resurrection alone
+Indeed, those who have believed and done righteous deeds - the Most Merciful will appoint for them affection
+So, [O Muhammad], We have only made Qur'an easy in the Arabic language that you may give good tidings thereby to the righteous and warn thereby a hostile people
+And how many have We destroyed before them of generations? Do you perceive of them anyone or hear from them a sound
+```n

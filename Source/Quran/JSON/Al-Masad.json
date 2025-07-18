@@ -1,0 +1,36 @@
+{
+	"Order": 111,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "المسد",
+		"Lines": [
+			"تَبَّتۡ يَدَآ أَبِي لَهَبٖ وَتَبَّ",
+			"مَآ أَغۡنَىٰ عَنۡهُ مَالُهُۥ وَمَا كَسَبَ",
+			"سَيَصۡلَىٰ نَارٗا ذَاتَ لَهَبٖ",
+			"وَٱمۡرَأَتُهُۥ حَمَّالَةَ ٱلۡحَطَبِ",
+			"فِي جِيدِهَا حَبۡلٞ مِّن مَّسَدِۭ"
+		]
+	},
+	"English": {
+		"Name": "Al-Masad",
+		"Description": "The Palm Fiber",
+		"Lines": [
+			"May the hands of Abu Lahab be ruined, and ruined is he",
+			"His wealth will not avail him or that which he gained",
+			"He will [enter to] burn in a Fire of [blazing] flame",
+			"And his wife [as well] - the carrier of firewood",
+			"Around her neck is a rope of [twisted] fiber"
+		]
+	},
+	"Turkish": {
+		"Name": "TEBBET",
+		"Description": "Hurma Lifi",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Ebu Leheb’in elleri kurusun, zaten kendisi bile kurudu[*]!",
+			"Ne malı işine yaradı ne de kazancı!",
+			"O, alevli bir ateşte kızaracak,",
+			"eşi de odun hamallığı yapacak,"
+		]
+	}
+}

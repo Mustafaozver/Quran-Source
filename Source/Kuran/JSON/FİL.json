@@ -1,0 +1,36 @@
+{
+	"Order": 105,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "الفيل",
+		"Lines": [
+			"أَلَمۡ تَرَ كَيۡفَ فَعَلَ رَبُّكَ بِأَصۡحَٰبِ ٱلۡفِيلِ",
+			"أَلَمۡ يَجۡعَلۡ كَيۡدَهُمۡ فِي تَضۡلِيلٖ",
+			"وَأَرۡسَلَ عَلَيۡهِمۡ طَيۡرًا أَبَابِيلَ",
+			"تَرۡمِيهِم بِحِجَارَةٖ مِّن سِجِّيلٖ",
+			"فَجَعَلَهُمۡ كَعَصۡفٖ مَّأۡكُولِۭ"
+		]
+	},
+	"English": {
+		"Name": "Al-Fil",
+		"Description": "The Elephant",
+		"Lines": [
+			"Have you not considered, [O Muhammad], how your Lord dealt with the companions of the elephant",
+			"Did He not make their plan into misguidance",
+			"And He sent against them birds in flocks",
+			"Striking them with stones of hard clay",
+			"And He made them like eaten straw"
+		]
+	},
+	"Turkish": {
+		"Name": "FİL",
+		"Description": "Fil",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Fillerle (Mekke’ye) gelenleri, Rabbinin ne hale getirdiğini, zihninde canlandırmadın mı?",
+			"Onların oyunlarını bozmuştu, değil mi?",
+			"Uçuşan yoğun bulut kütlelerini[*] üzerlerine göndermişti,",
+			"onlara pişmiş çamurdan taşlar atan bulutları[*]!"
+		]
+	}
+}

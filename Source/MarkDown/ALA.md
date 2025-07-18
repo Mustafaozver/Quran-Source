@@ -1,0 +1,97 @@
+# ALA الأعلى ( En Yüksek ) 
+---
+- Sure Adı : ALA
+- Sure No : 87
+- Sure Tipi : meccan
+- Sure Ayet Sayısı : 19
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Her şeyinle, Rabbinin (Sahibinin) yüce adına yönel[*].
+Yaratan ve dengeyi kuran O’dur.
+Ölçüyü koyan ve yolu gösteren O’dur.
+Otlağı yeşerten,
+sonra kapkara çöpe çeviren de odur.
+Kur’an’ı içine yerleştireceğiz[*], unutmayacaksın;
+Allah unutturursa[*] başka! O açıkta olanı da bilir, gizli olanı da!
+Seni en kolay (çözümlere) kolayca ulaştıracağız!
+Birine bilgi vermenin (Kur’an’ı anlatmanın) faydası olacaksa bilgi ver[*]!
+Saygısı olan, o bilgiden yararlanacak,
+Hayırsız olan[*] ise ondan kaçacaktır.
+O kişi, en büyük ateşten kurtulamayacak olandır.
+Artık orada o, ne ölecek ne de rahat bir hayat sürecektir.
+Kendini geliştiren ise umduğuna kavuşacaktır.
+O, Sahibinin adını aklından çıkarmayan ve O’nun yolundan ayrılmayan kişidir[*].
+Hayır, siz yaşadığınız şu hayatı tercih ediyorsunuz.
+Oysa ilerideki hayat daha hayırlı ve süreklidir!
+Bunlar önceki sayfalarda da vardır,
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[*]&nbsp;</strong>Tesbih: Allah’a kulluk konusunda hızlı hareket etmek, Allah’ı tenzih ve ona uygun olmayan şeyleri ondan uzak bilmek demektir (Müfredat). Bunları bütün dikkatiyle Allah’a yönelen kişiler yapabileceğinden meal o şekilde verilmiştir.
+[*]&nbsp; Ayetteki nukriuke =نُقْرِؤُكَ sözü, toplama anlamında olan kur’ân قُرْآنً kökünden (Lisanu’l-Arab, قَرْء mad.) ve if’âl kalıbındandır. Bu kalıp kelimeye, “bir şeyi bir şeyin için sokma” anlamı kazandırabildiği için meal bu şekilde verilmiştir.
+<strong>[*] </strong>Şâe = شاء fiilinin kökü, “bir şeyi var etme” anlamında olan şey =شيء’dir(Müfredât). Allah’ın bir şeyi var etmesi, gerekeni yapması ile olur.
+
+	&nbsp;
+<strong>[*]</strong>&nbsp;Bilgi diye çevrilen kelime “zikir”dir. Zikir, sürekli akılda tutulan kullanıma hazır bilgidir. (Müfredat) Abese Suresinde belirtildiği gibi, dinlemek istemeyenle uğraşmanın bir anlamı yoktur.
+
+	&nbsp;
+<strong>[*]&nbsp;</strong>Burada ism-i tafdil değilı sıfat-ı müşebbehe anlamı verilmiştir.
+
+	&nbsp;
+[*]&nbsp;Burada ism-i tafdil değilı sıfat-ı müşebbehe anlamı verilmiştir.
+
+	&nbsp;
+```
+---
+## الأعلى
+```read
+سَبِّحِ ٱسۡمَ رَبِّكَ ٱلۡأَعۡلَى
+ٱلَّذِي خَلَقَ فَسَوَّىٰ
+وَٱلَّذِي قَدَّرَ فَهَدَىٰ
+وَٱلَّذِيٓ أَخۡرَجَ ٱلۡمَرۡعَىٰ
+فَجَعَلَهُۥ غُثَآءً أَحۡوَىٰ
+سَنُقۡرِئُكَ فَلَا تَنسَىٰٓ
+إِلَّا مَا شَآءَ ٱللَّهُۚ إِنَّهُۥ يَعۡلَمُ ٱلۡجَهۡرَ وَمَا يَخۡفَىٰ
+وَنُيَسِّرُكَ لِلۡيُسۡرَىٰ
+فَذَكِّرۡ إِن نَّفَعَتِ ٱلذِّكۡرَىٰ
+سَيَذَّكَّرُ مَن يَخۡشَىٰ
+وَيَتَجَنَّبُهَا ٱلۡأَشۡقَى
+ٱلَّذِي يَصۡلَى ٱلنَّارَ ٱلۡكُبۡرَىٰ
+ثُمَّ لَا يَمُوتُ فِيهَا وَلَا يَحۡيَىٰ
+قَدۡ أَفۡلَحَ مَن تَزَكَّىٰ
+وَذَكَرَ ٱسۡمَ رَبِّهِۦ فَصَلَّىٰ
+بَلۡ تُؤۡثِرُونَ ٱلۡحَيَوٰةَ ٱلدُّنۡيَا
+وَٱلۡأٓخِرَةُ خَيۡرٞ وَأَبۡقَىٰٓ
+إِنَّ هَٰذَا لَفِي ٱلصُّحُفِ ٱلۡأُولَىٰ
+صُحُفِ إِبۡرَٰهِيمَ وَمُوسَىٰ
+```
+---
+## Al-A'la
+```read
+Exalt the name of your Lord, the Most High
+Who created and proportioned
+And who destined and [then] guided
+And who brings out the pasture
+And [then] makes it black stubble
+We will make you recite, [O Muhammad], and you will not forget
+Except what Allah should will. Indeed, He knows what is declared and what is hidden
+And We will ease you toward ease
+So remind, if the reminder should benefit
+He who fears [Allah] will be reminded
+But the wretched one will avoid it
+[He] who will [enter and] burn in the greatest Fire
+Neither dying therein nor living
+He has certainly succeeded who purifies himself
+And mentions the name of his Lord and prays
+But you prefer the worldly life
+While the Hereafter is better and more enduring
+Indeed, this is in the former scriptures
+The scriptures of Abraham and Moses
+```n

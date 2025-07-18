@@ -1,0 +1,31 @@
+# HADİD
+---
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Göklerde ve yerde ne varsa hepsi Allah’a boyun eğer.  Üstün olan ve doğru kararlar veren O’dur.
+Göklerin ve yerin hakimiyeti O’ndadır. Can veren O, öldüren O’dur. O, her şeye bir ölçü koyar.
+İlk O’dur, sonraki de O. Açıkta olan O’dur, duyulardan uzak olan da O’dur. O, her şeyi bilendir.
+Gökleri, yeri ve ikisinin arasındakileri altı günde[*](evrede) yaratan ve yönetime (arşa) geçmiş olan O’dur. Yere ne girer ve yerden ne çıkarsa, gökten ne iner ve gökte/göğe ne yükselirse onların hepsini bilir. Nerede olursanız olun, O, sizinle birliktedir. Allah, yaptığınız her şeyi görür.
+Göklerin ve yerin hakimiyeti O’nun elindedir. Bütün işler O’na arz edilir.
+Geceyi gündüze katar, gündüzü de geceye katar. O herkesin içinde olanı bilir.
+Siz, Allah’a ve elçisine inanıp güvenin ve size verilen şeylerden hayra harcayın. İçinizden inanıp güvenen ve hayra harcayanlar için büyük bir ödül vardır.
+Sizin neyiniz var ki Allah’a ve elçisine güvenmiyorsunuz? Oysa o, sizden kesin söz[1*] almış olan Rabbinize[2*] güvenmeye çağırıyor. Söz verirken güvendiyseniz şimdi de güvenin.
+Sizi karanlıklardan aydınlığa çıkarması için kuluna birbirini açıklayan ayetleri indiren O’dur. Allah size karşı şefkatlidir, ikramı boldur.
+Sizin neyiniz var ki Allah yolunda harcama yapmıyorsunuz? Göklerde ve yerdeki her şey zaten Allah’a kalacaktır. Önünüzün açılmasından[*] önce hayra harcayan ve savaşanların derecesi, daha sonra hayra harcayan ve savaşanlarınki ile bir olmaz; öncekilerin derecesi daha yüksektir. Allah hepsine, yaptığının en güzeli ile karşılama sözü vermiştir. Allah, yaptıklarınızın iç yüzünü bilir.
+Allah’a güzel ödünç verecek biri var mı ki Allah onu katlayarak geri versin? Onu cömertçe bir ödül beklemektedir.
+Bir gün inanıp güvenen erkeklerle inanıp güvenen kadınların ışıklarının, önlerinden ve sağlarından saçıldığını göreceksin. Onlara: “İçinden ırmaklar akan bahçeler bugün sizin müjdenizdir; orada ölümsüz olacaksınız” denir. İşte bu, büyük bir kurtuluştur.
+O gün ikiyüzlü (münafık) erkeklerle ikiyüzlü kadınlar, müminlere şöyle derler: “Bize bakın da ışığınızdan yararlanalım.” Onlara: “Arkanıza dönüp kendinize ışık arayın.” denir. Sonra aralarına giriş kapısı olan bir duvar çekilir[*]. İç tarafında her türlü ikram, dış tarafında da azap olur.
+Münafıklar: “Sizinle beraber değil miydik?” diye bağırırlar. Müminler: “Evet ama siz kendinizi yaktınız. Bizi gözlemlediniz, şüpheye düştünüz; kurduğunuz kurgular, Allah’ın (ölmenizle ilgili) emri gelinceye kadar sizi aldattı. O çok aldatan (şeytan) da sizi Allah ile aldattı.”
+(Ey münafıklar!) Bu gün sizden de ayetleri görmezlikten gelenlerden (kafirlerden) de bir can bedeli (fidye) alınmayacaktır. Varıp duracağınız yer o ateştir. Artık o, sizin en yakınınızdır. Ne kötü hale gelmektir o!
+Kendini inanıp güvenmiş (mümin) sayanların[1*] kalplerini, Allah’ın Zikrine (Kitabına) ve o gerçekten süzülen hikmetlere[2*] bağ­lamalarının zamanı gelmedi mi? Sakın daha önce kendilerine ki­tap verilen­ler gibi olmasınlar; üzerlerinden uzun zaman geçmişti de kalpleri katılaşmıştı. On­ların çoğu yoldan çıkmıştır.
+Bilin ki Allah, (sadece insanlara değil) ölümünden sonra toprağa da hayat verir. Bu ayetleri size aklınızı kullanasınız diye açıklıyoruz.
+Allah’a güzel bir ödünç vererek sadaka (zekat) dağıtan erkeklerle kadınlara, karşılıkları kat kat verilecektir. Onlar için büyük bir ödül vardır.
+Allah’a ve elçilerine inanıp güvenenler, Rableri katında özü sözü doğru ve şahit sayılacak kimselerdir. Onların hem alacakları ödül hem de ışıkları (nurları) vardır. Ayetlerimiz karşısında yalan yanlış şeylere sarılarak ayetleri görmezlikten gelenler ise cehennem ahalisidir.
+Bilin ki dünya hayatı bir oyun, bir oyalanma, bir süs, mallar ve çocuklarla övünme yarışından ibarettir. Bu hayat, bitirdiği bitkilerle çiftçileri hayran bırakan bereketli yağmura benzer. Sonra bitki kurur; onu sararmış görürsün, arkasından da çer-çöpe dönüşür. Ama Ahirette (öbür dünyada) hem ağır bir azap hem de Allah’ın bağışlaması ve rızası vardır. Dünya hayatı, aldatıcı bir yararlanma dışında bir şey değildir.
+Rabbiniz (Sahibiniz) tarafından bağışlanmayı ve genişliği göklerle yerin arası kadar olan Cennet’i elde etmek için yarışın. Orası Allah’a ve elçilerine inanıp güvenenler için hazırlandı. İşte Allah’ın ikramı budur; onu, yapması gerekeni yapan[*] kişilere verecektir. Allah, büyük ikram sahibidir.
+Yeryüzünde veya kendinizde meydana gelen bir tek olay yoktur[*] ki onu, ayrı bir varlık olarak yaratmamızın öncesinde bir deftere kaydedilmiş olmasın. Bu, Allah’a göre kolaydır.
+Bunun böyle olması, kaybettiğinize üzülmeyesiniz, Allah’ın verdiği şeyle de şımarmayasınız diyedir[*]. Allah, kendini bir şey zannedip övünen hiç kimseyi sevmez.
+Onlar, cimrilik eden ve insanlardan da cimrilik etmelerini isteyen kimselerdir. Allah'tan yüz çeviren çevirsin; Allah’ın kimseye ihtiyacı yoktur, yaptığını da güzel yapar.
+Şurası kesin ki elçilerimizi açık belgelerle gönderdik; beraberlerinde Kitab’ı ve dengeyi (mîzanı)[1*] indirdik ki insanlar her şeyin hakkını versinler. Pek sert olan ve insanlara bir çok faydası olan demiri de Biz indirdik[2*]. Bunlar, dinine ve elçilerine kimin içten[3*] destek olduğunu Allah’ın bilmesi içindir. Allah güçlüdür, her işin üstesinden gelir.
+Nuh'u ve İbrahim'i elçi olarak gönderen biziz. İkisinin soyundan gelenlere de nebilik ve kitap verdik. O iki soydan gelenlerin bir kısmı doğru yoldadır, bir çoğu da yoldan çıkmıştır.
+Sonra onların izlerini takip eden elçilerimizi peş peşe gönderdik; Meryem oğlu İsa'yı da onların ardından gönderdik ve ona İncil'i verdik. Ona uyanların gönüllerine şefkat ve iyilik duyguları yerleştirdik. Ama kendilerine yazmadığımız bir ruhbanlık uydurdular. Niyetleri sadece Allah’ın rızasını kazanmaktı fakat onu gereği gibi yapmadılar. İçlerinde inanıp güvenmiş olanlara ödülünü veririz ama çoğu yoldan çıkmıştır.
+Ey inanıp güvenenler! Allah’tan çekinerek kendinizi koruyun ve O’nun elçisine tam güvenin ki size ikramından iki pay versin, içinde yürüye­ce­ğiniz bir ışık (nur) oluştursun ve sizin durumunuzu düzeltsin. Allah bağışlar ve ikramı boldur.

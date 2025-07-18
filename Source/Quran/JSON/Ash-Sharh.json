@@ -1,0 +1,45 @@
+{
+	"Order": 94,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "الشرح",
+		"Lines": [
+			"أَلَمۡ نَشۡرَحۡ لَكَ صَدۡرَكَ",
+			"وَوَضَعۡنَا عَنكَ وِزۡرَكَ",
+			"ٱلَّذِيٓ أَنقَضَ ظَهۡرَكَ",
+			"وَرَفَعۡنَا لَكَ ذِكۡرَكَ",
+			"فَإِنَّ مَعَ ٱلۡعُسۡرِ يُسۡرًا",
+			"إِنَّ مَعَ ٱلۡعُسۡرِ يُسۡرٗا",
+			"فَإِذَا فَرَغۡتَ فَٱنصَبۡ",
+			"وَإِلَىٰ رَبِّكَ فَٱرۡغَب"
+		]
+	},
+	"English": {
+		"Name": "Ash-Sharh",
+		"Description": "The Relief",
+		"Lines": [
+			"Did We not expand for you, [O Muhammad], your breast",
+			"And We removed from you your burden",
+			"Which had weighed upon your back",
+			"And raised high for you your repute",
+			"For indeed, with hardship [will be] ease",
+			"Indeed, with hardship [will be] ease",
+			"So when you have finished [your duties], then stand up [for worship]",
+			"And to your Lord direct [your] longing"
+		]
+	},
+	"Turkish": {
+		"Name": "İNŞİRAH",
+		"Description": "Ferahlık",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Senin içini açtık değil mi?",
+			"Yükünü de kaldırdık,",
+			"belini büken yükü[*].",
+			"Bir de değerini yükselttik.",
+			"Demek ki her güçlüğün yanında bir kolaylık varmış!",
+			"Unutma ki o güçlüğün yanında bir kolaylık daha vardır[*].",
+			"Öyleyse boş kalınca kalk, yorul"
+		]
+	}
+}

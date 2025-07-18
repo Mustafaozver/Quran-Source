@@ -1,0 +1,36 @@
+{
+	"Order": 97,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "القدر",
+		"Lines": [
+			"إِنَّآ أَنزَلۡنَٰهُ فِي لَيۡلَةِ ٱلۡقَدۡرِ",
+			"وَمَآ أَدۡرَىٰكَ مَا لَيۡلَةُ ٱلۡقَدۡرِ",
+			"لَيۡلَةُ ٱلۡقَدۡرِ خَيۡرٞ مِّنۡ أَلۡفِ شَهۡرٖ",
+			"تَنَزَّلُ ٱلۡمَلَـٰٓئِكَةُ وَٱلرُّوحُ فِيهَا بِإِذۡنِ رَبِّهِم مِّن كُلِّ أَمۡرٖ",
+			"سَلَٰمٌ هِيَ حَتَّىٰ مَطۡلَعِ ٱلۡفَجۡرِ"
+		]
+	},
+	"English": {
+		"Name": "Al-Qadr",
+		"Description": "The Power",
+		"Lines": [
+			"Indeed, We sent the Qur'an down during the Night of Decree",
+			"And what can make you know what is the Night of Decree",
+			"The Night of Decree is better than a thousand months",
+			"The angels and the Spirit descend therein by permission of their Lord for every matter",
+			"Peace it is until the emergence of dawn"
+		]
+	},
+	"Turkish": {
+		"Name": "KADİR",
+		"Description": "Kudret",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Biz Kur’ân’ı kadir gecesinde indirdik!",
+			"Kadir gecesi nedir, sen nereden bileceksin?",
+			"Kadir gecesi, bin aydan hayırlıdır!",
+			"O gece melekler,Rablerinin her bir konuda onayladığı görevlerle (ruhlarla)[*] inerler."
+		]
+	}
+}

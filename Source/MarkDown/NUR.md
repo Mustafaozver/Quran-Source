@@ -1,0 +1,308 @@
+# NUR النور ( Işık ) 
+---
+- Sure Adı : NUR
+- Sure No : 24
+- Sure Tipi : medinan
+- Sure Ayet Sayısı : 64
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Bu, indirdiğimiz ve farz kıldığımız bir suredir. Belki bilgilerinizi kullanırsınız diye bu surede açık ayetler indirmişizdir.
+Zina eden kadınla zina eden erkekten her birine yüz kamçı[*] vurun. Eğer Allah’a ve son güne inanıyorsanız, Allah’ın verdiği cezayı yerine getirirken onlara karşı yumuşamayın. İnananlardan bir takımı da onlara yapılan azabı gözleriyle görsün.
+Zina eden erkek, ancak zina eden veya müşrik olan bir kadınla evlenebilir. Zina eden kadınla da, ancak zina eden veya müşrik olan bir erkek evlenebilir. Bunlar müminlere haram kılınmıştır.
+İffetli kadınlara zina suçu atan sonra dört şahit getiremeyenlere seksen kamçı vurun; ebediyen onların şahitliğini kabul etmeyin. Onlar yoldan çıkmış kimselerdir.
+Bundan sonra, tevbe eden ve kendini düzeltenler başka. Allah bağışlar, ikramı boldur.
+Eşlerine zina suçu atan ve kendileri dışında şahitleri olmayanlar... Böyle birinin şahitliği, kesinkes doğru söylediğine dair dört defa Allah’ı şahit tutması ile olur.
+Beşincisinde, eğer yalan söylüyorsa Allah’ın lanetine uğramayı diler.
+Kadından o azabı (kamçı cezasını) giderecek olan şu şekilde dört defa şahitlik etmesidir: Allah şahit, kocası kesinkes yalan söylüyor.
+Beşincisinde, eğer (kocası) doğru söylüyorsa Allah’ın gazabına uğramayı diler.
+Allah’ın size iyiliği ve ikramı olmasaydı böyle olmazdı. Allah tövbeleri kabul eder ve doğru karar verir.
+O çarpıtılmış haberi getirenler içinizden bir çetedir. Onu sizin için şerli görmeyin, aksine o sizin hayrınızadır. Onlardan her biri için, suça ortaklığına denk ceza vardır[*]. Suçun elebaşlığını yapan için de ağır bir azap vardır.
+Suçlamayı duyduğunuzda müslüman erkekler ile müslüman kadınların birbirleri için iyi niyet göstererek “Bu, apaçık bir iftiradır” demeleri gerekmez miydi?
+Bir de o çete bu suçlama için dört şahit getirseydi ya? Getiremediklerine göre onlar Allah’ın yanında yalancı kimselerdir.
+Eğer dünyada ve ahirette Allah’ın sizi kayırması ve ikramı olmasaydı bulaştığınız bu işten dolayı sizi büyük bir azap çarpardı.
+Bu yalanı dilinize dolayıp, hakkında bir bilginiz olmayan şeyi ağızlarınızla konuşuyordunuz. Bunu basit sanıyorsunuz, oysa Allah katında onun önemi büyüktür.
+Onu duyduğunuzda şöyle deseydiniz olmaz mıydı: “Bu konuda konuşmaya hakkımız yoktur. Biz sana içten boyun eğeriz ey Sahip, bu büyük bir iftiradır!”
+Eğer inanan kimselerseniz Allah size, bir daha böyle bir işe bulaşmamanızı tavsiye eder.
+Allah bu ayetleri size açıkça bildiriyor. Allah bilir, doğru karar verir.
+Fuhuşun müminler arasında yayılmasını isteyenlerin payına düşen, dünyada da ahirette de acıklı bir azaptır. Allah bilir; siz bilemezsiniz.
+Allah’ın size iyiliği ve ikramı, şefkati ve merhameti olmasaydı bu kadarla kalmazdı.
+Ey inanıp güvenenler! Şeytanın izinden gitmeyin. Şeytan, kendi izinden gidenin çirkin ve uygunsuz davranışlar yapmasını ister. Allah’ın iyiliği ve ikramı olmasaydı hiçbiriniz kendini düzeltip geliştiremezdi. Ama Allah, gerekeni yapanı[*] düzeltip geliştirir. Her şeyi dinleyen ve bilen Allah’tır.
+İçinizden maddi imkâna sahip iyilikseverler yakınlarına, çaresiz kalanlara, Allah yolunda hicret edenlere verme konusunda ihmalde bulunmasınlar. Onları bağışlasınlar ve yeni bir sayfa açsınlar. Allah’ın sizi bağışlamasını istemez misiniz? Allah bağışlar, ikramı boldur.
+Bir şeyden haberi olmayan namuslu mümin kadınlara iftira edenler, dünyada da ahirette de dışlanmışlardır. Onların payına düşen büyük bir azaptır.
+Onların yapmakta olduklarına, kendi dilleri, kendi elleri ve kendi ayakları şahitlik ettiği günde;
+İşte o gün Allah onlara, hak ettikleri cezayı tam olarak verecek ve onlar, o açık gerçeği ortaya çıkaranının Allah olduğunu öğreneceklerdir.
+Kötü kadınlar kötü erkekler için kötü erkekler kötü kadınlar içindir. İyi kadınlar iyi erkekler için iyi erkekler de iyi kadınlar içindir[*]. Bunlar o iftiracıların dediklerinden uzaktırlar. Onların payına düşen bağışlanma ve ikramiyeli rızıktır.
+Müminler! Kendi evlerinizden başka evlere, kendinizi tanıtıp izin almadan ve orada olanlara selam vermeden girmeyin. Bilgilerinizi kullanırsanız sizin için iyi olan budur.
+Orada kimseyi bulamazsanız izin verilinceye kadar içeri girmeyin. Size geri dönün denirse dönün.  Sizin için nezih olan budur. Allah ne yaptığınızı bilir.
+Oturanı olmayan ama içinde size ait mal bulunan kapalı mekanlara girmenizde bir günah yoktur. Açığa vurduğunuz şeyi de gizlediğiniz şeyi de Allah bilir.
+Mümin erkeklere söyle, gözlerini sakınsınlar[1*]; ferçlerini (kolları ile bacakları arasındaki organlarını)[2*] korusunlar. Onları daha da geliştirecek olan budur. Allah, yaptıkları şeyin iç yüzünü bilir.
+Mümin kadınlara da söyle, gözlerini sakınsınlar; ferçlerini (kolları ile bacakları arasındaki organlarını) korusunlar. Güzelliklerinden [1*] görünen kısım [2*] dışındakileri açmasınlar. Başörtülerinin bir kısmını yakalarının üstüne vursunlar. Kocaları, babaları, kocalarının babaları, oğulları, kocalarının oğulları, erkek kardeşleri, erkek kardeşlerinin oğulları, kız kardeşlerinin oğulları, kendi kadınları, elleri altında bulunan esirler, kadına ihtiyacı kalmamış erkekler ve kadınların edep yerlerine ilgi duymayan küçük çocuklar[3*] dışında hiç kimseye süslerini açmasınlar. Gizledikleri güzellikleri bilinsin[4*] diye ayaklarını farklı şekilde yere basmasınlar. Müminler, hep birlikte Allah’a yönelin ki umduğunuza kavuşasınız.
+İçinizden evli olmayanlar ile erkek ve kadın esirlerinizden uygun durumda olanları evlendirin. Yoksul iseler Allah, kendi ikramıyla onların ihtiyacını giderir. Allah’ın imkânları geniştir, bilir.
+Evlenme imkânı bulamayanlar, Allah tarafından ihtiyaçları karşılanıncaya kadar kendilerine hakim olsunlar.  Eliniz altındaki esirlerden hürriyet sözleşmesi (kitabet) yapmak isteyenlerde bir iyi tutum biliyorsanız sözleşmeyi yapın. Allah’ın size verdiği maldan da onlara verin. Eğer evlenmek isterlerse dünya hayatının geçici menfaatinin peşine düşerek kızlarınızı isyana zorlamayın.  Kim onları zorlarsa, zorlanmalarından sonra Allah onları bağışlar, ikram eder.[*]
+Şurası bir gerçek ki size açıklayıcı ayetler, sizden önce yaşayanlardan örnekler, korunanlar içinde öğütler indirdik.
+Gökleri ve yeri aydınlatan Allah’tır. O’nun nuru/Kitabı, duvardaki bir oyuğa konmuş lamba gibi aydınlatır[1*] (bütün ayrıntıları gösterir). Lamba, camın içinde, cam da inciyi andıran yıldız gibidir. Yakıtı, doğu tarafına da batı tarafına da ait olmayan (Güneş ışığını sabahtan akşama kadar alan) bereketli zeytin ağacındandır[2*]. Yağı, ateş almamışken bile ışık saçar gibi parıldar. Işık üstüne ışık! Allah, gerekeni yapanı[3*] kendi ışığına/kitabına yöneltir. Allah insanlara örnekler verir. Allah her şeyi bilir.
+(O ışık) yüce tutulmasına ve içlerinde adının anılmasını Allah’ın izin verdiği evlerde olur. Oralarda sabah akşam (insanlar) Allah’a boyun eğerler.
+(O ışıktan yararlananlar) Öyle adamlardır ki, onları ne ticaret, ne alış veriş onları Allah’ın zikrinden (Kur’ân’dan), namazı tam kılmaktan ve zekatı vermekten alıkoyabilir. Onlar, kalplerin ve gözlerin döneceği bir günden korkarlar.
+Allah’ın, onları yaptıklarının en güzeli ile karşılaması ve ikramıyla daha da artırması için böyle yaparlar. Allah, gerek gördüğü[*] kişiye hesapsız rızık verir.
+Allah’ı görmezlikten gelenlerin işleri, düz çöldeki serap gibidir. Susayan onu su sanır. Yanına varınca onun bir şey olmadığını görür ve Allah’ı yanında bulur. O da onun hesabını görür. Allah hesabı çabuk görür.
+Onların işleri dalgalı bir denizdeki karanlıklara da benzer; (geminin) üstünü bir dalga örtmüştür. Üstünde bir dalga daha onun da üstünde bulut vardır.  Üst üste yığılmış karanlıklar! Elini kaldırsa göremeyecek gibidir. Allah’ın ışık vermediği kimsenin ışığı olmaz.
+Hiç görmedin mi, göklerde ve yerde kim varsa, kuş sürülerine varıncaya kadar Allah’a boyun eğerler. Her biri duasını ve boyun eğmesi gerektiğini bilir. Allah onların yaptıkları her şeyi bilmektedir.
+Göklerde ve yerde hâkimiyet Allah’a aittir. Dönüş Allah’ın huzuruna olacaktır.
+Hiç görmedin mi Allah, bulutları sürüklüyor, sonra bir birine kaynaştırıyor; sonra yığın haline getiriyor. Sonra arasından yağmur çıktığını görürsün. Gökteki dağdan (dağ gibi buluttan) dolu indirip uygun gördüğü kimselerin tepesine yağdırıyor. Kimilerinden de onu uzak tutmayı tercih ediyor. Onun şimşeğinin parıltısı gözleri çıkaracak gibidir.
+Allah gece ile gündüzden birini sürekli diğerinin yerine koyar.  Gözleri olanlar için bunda tam bir ibret vardır.
+Allah, her canlıyı sudan yarattı. Kimi karnı üzerinde sürünür, kimi iki ayak üstünde yürür, kimi de dört ayak üstünde yürür. Allah, yaptığı tercihe göre yaratır. Allah, her şeye bir ölçü koymuştur.
+Biz, birbirini açıklayan âyetler indirdik. Allah, yapması gerekeni yapanı doğru bir yola yöneltir.
+Kimileri,  “Allah’a ve elçisine inandık ve boyun eğdik” derler. Sonra bunun arkasından onlardan bir takımı yüz çevirir. Onlar mümin değillerdir.
+Aralarında hükmünü versin diye Allah’a ve Elçisine çağrılınca onlardan bir takımı yan çizer.
+Eğer haklı konumda olsalar, koşa koşa gelirler.
+Onların kalplerinde hastalık mı var? Yoksa şüpheye mi düştüler? Ya da Allah’ın ve elçisinin kendilerine haksızlık edeceğinden mi korkuyorlar? Hayır, onlar yanlış yoldadırlar.
+Müminler ise,  aralarında hüküm versin diye Allah’a ve elçisine çağrıldıklarında sadece şu sözü söylerler “dinledik ve boyun eğdik”. Umduklarına kavuşacak olanlar işte bunlardır.
+Kim Allah’a ve elçisine boyun eğer, Allah’tan korkar ve ondan çekinirse işte başaracak olanlar onlardır.
+“Emir verirsen, mutlaka savaşa çıkacaklar” diye, olanca güçleriyle Allah’a yemin ederler. De ki: “Yemin etmeyin, güzel bir itaat yeter. Çünkü Allah yaptıklarınızın iç yüzünü bilir.”
+De ki: “Allah’a gönüllü olarak boyun eğin, Resulüne/Elçisinin getirdiğine[1*] gönüllü boyun eğin Eğer yüz çevirirseniz[2*] (bilin ki) ona yüklenen onun sorumluluğu, size yüklenen de sizin sorumluluğunuzdur. Ona gönüllü olarak boyun eğerseniz yola gelmiş olursunuz. Elçinin görevi, açık bir tebliğden ibarettir.
+“Allah’ın, içinizden inanan ve iyi iş yapanlara sözü vardır; öncekilere verdiği gibi o yeri de kesinlikle onlara verecek, razı olduğu dini onlar için kökleştirecek ve korkularının ardından onları güvene kavuşturacaktır. Onlar bana kulluk eder, bir şeyi ortak koşmazlar. Bundan sonra da kendini doğrulara kapatanlar olursa yoldan çıkmış olurlar.”
+Namazı düzgün ve sürekli kılın, zekâtı verin ve Resulüme/Elçimin getirdiğine gönüllü olarak boyun eğin ki iyilik bulasınız.
+(Allah’ın kitabını) görmezlik edenler, bu topraklarda sakın müminleri aciz bırakacaklarını hesap etmesinler. Onların dönecekleri yer o ateştir.  Ne kötü hale gelmektir o!
+Müminler! Elinizin altındaki esirler ile henüz erginlik çağına girmemiş çocuklarınız üç vakitte; sabah namazından önce, öğlen dinlenmesinde elbisenizi çıkarınca, bir de yatsı namazından sonra yanınıza girerken sizden izin istesinler.  Bunlar sizin çıplak olabileceğiniz üç vaktidir. Bunların dışında size de onlara da bir günah yoktur. Onlar sizin, siz onların çevresinde dönüp dolaşırsınız. Allah size ayetlerini böyle açıklar. Allah bilir, doğru karar verir[*].
+Çocuklarınız erginlik çağına varınca kendilerinden öncekiler nasıl (her zaman[*]) izin istiyorlarsa onlarda izin istesinler. Allah size ayetlerini böyle açıklar. Allah bilir, doğru karar verir.
+Oturup kalmış, evlenme umudu bitmiş kadınların, süslerini teberrüc (yüz, boyun, boğaz ve gerdanındaki güzelliği göstermekle birlikte gözleriyle güzel bir bakış sergileme) gayreti olmadan buralarını örten örtülerini açmalarında bir günah yoktur[*]. Kendilerine dikkat etmeleri, onlar için daha iyi olur. Her şeyi dinleyen ve bilen Allah’tır.
+Köre güçlük yoktur, topala güçlük yoktur, hastaya güçlük yoktur, size de bir güçlük yoktur, kendi evlerinizde, babalarınızın evlerinde, annelerinizin evlerinde, erkek kardeşlerinizin evlerinde, kız kardeşlerinizin evlerinde,  amcalarınızın evlerinde, halalarınızın evlerinde, dayılarınızın evlerinde, teyzelerinizin evlerinde, anahtarı sizde olan veya arkadaşınıza ait olan evlerde yiyip içebilirsiniz. Bir arada veya ayrı ayrı[1*] yiyip içmenizde de bir günah yoktur. Evlere girdiğiniz vakit Allah’tan ömür ve güzel bir bereket dileği ile dostlarınıza[2*] selam verin. İşte Allah size ayetlerini böyle açıklar, belki aklınızı kullanırsınız.
+Müminler, yalnızca Allah’a ve Elçisine inanıp güvenen kimselerdir. Elçi ile birlikte toplu bir iş yaptıkları sırada ondan izin almadan çekip gitmezler. Allah’a ve Elçisine inanıp güvenenler senden izin isteyenlerdir. Eğer bazı işleri için izin isterlerse uygun gördüğün kimselere izin ver ve onlar için Allah’tan bağışlanma dile. Allah bağışlar, ikramı boldur.
+Elçinin çağrısını, birinizin diğerine yaptığı çağrıyla bir tutmayın. Arkalardan sıvışıp gidenleri Allah elbette bilir. Onun emrine aykırı davrananlar başlarına gelecek bir sıkıntıya ya da uğrayacakları acıklı bir azaba karşı tedbirlerini alsınlar.
+```
+---
+
+### Açıklamalar
+
+```read
+[*] ...
+<strong>[*]&nbsp;</strong> مَّا اكْتَسَبَ مِنَ الْإِثْمِ ayetine مقدار ما اكتسب anlamı verilmiştir.
+[*] Şâe = شاء fiilinin kökü, “var etme” anlamında olan şey =شيء’dir. (Müfredât). Allah her şeyi, bir ölçüye göre yaratır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/kamer.htm#49">Kamer 54/49</a>, <a href="https://www.suleymaniyevakfimeali.com/Meal/rad.htm#8">Ra’d 13/8</a>) İmtihanla ilgili olanları iyi ve kötü diye ikiye ayırmıştır. (<a href="https://www.suleymaniyevakfimeali.com/Meal/enbiya.htm#35">Enbiyâ 21/35</a>) Allah, herkesin iyi işler yapıp doğru yolda olmasını ister (<a href="https://www.suleymaniyevakfimeali.com/Meal/nisa.htm#26">Nisa 4/26</a>) ama sadece gerekeni yapanı doğru yolda sayar. (<a href="https://www.suleymaniyevakfimeali.com/Meal/nur.htm#46">Nur 24/46</a>) Yaptığının iyi mi yoksa kötü mü olduğunu da kuluna ilham eder. (<a href="https://www.suleymaniyevakfimeali.com/Meal/%C5%9Fems.htm#7">Şems 91/7-10</a>)
+
+	Buna göre şâe = شاء fiilinin öznesi Allah olursa “gerekeni yaptı” insan olursa “tercihinin gereğini yaptı” anlamına gelir. Bir ayet şöyledir: ”Gerekeni Allah yapsaydı hepinizi tek bir toplum haline getirirdi. Ama Allah, (sapıklığın) gereğini yapanı sapık sayar, (doğru yolda olmanın) gereğini yapanı da yoluna kabul eder. Yaptıklarınızdan elbette sorumlu tutulacaksınız.” (<a href="https://www.suleymaniyevakfimeali.com/Meal/nahl.htm#93">Nahl 16/93</a>)
+
+	Kur’an’da olmayan kader inancını İslam’a yerleştirmek isteyenler, büyük bir çarpıtma yaparak şâe = شاء fiiline irade yani isteme ve dileme anlamı vermiş, bu yanlış anlamı, tefsirlere ve sözlüklere yerleştirerek birçok ayetin mealini bozmuşlardır. Yukarıdaki âyetin meali şöyle olmuştur:
+
+	“Allah dileseydi sizi tek bir ümmet yapardı. Ama O, dilediğini saptırır, dilediğini doğru yola eriştirir. Bütün yaptıklarınızdan elbette sorumlu tutulacaksınız.”
+
+	Bunu yapanlar Kur’an’ı, çelişkili bir kitap gibi göstermeyi de başarmışlardır. Ayrıntı için bkz: <a href="https://www.suleymaniyevakfi.org/akaid-arastirmalari/kuranda-sey-mesiet-irade-ve-fitrat.html">http://www.suleymaniyevakfi.org/akaid-arastirmalari/kuranda-sey-meset-irade-ve-fitrat.html</a>
+
+	&nbsp;
+<strong>[*]</strong> Evlenmede namus konusu
+<strong>[1*]</strong> Bu ve bundan sonraki âyet, kadın ile erkeğin, sosyal hayatta ayrıştırmak için değildir. Çünkü verilen selamı, cinsiyet ayrımı olmadan daha iyisiyle almak emredilmiştir (<a href="http://suleymaniyevakfimeali.com/Meal/Nisa.htm#86">Nisa 4/86</a>) Ama bakışlar, en etkili iletişim aracı olduğundan dikkatli olmak gerekir. Bunun en kestirme yolu göz bebeklerini büyültecek şekilde bakmamaktır.
+
+	<strong>[2*]</strong> <strong>Ferc</strong>, iki kolun arası ile iki bacağın arasındaki organlardır. (<strong>Lisan'ul-arab</strong>)
+<strong>[1*]</strong> Güzellik diye meal verdiğimiz kelime ziynet = الزينة’tir. Bazıları bunun, dış elbise veya süs olduğunu söyler. Dış elbise, hem kadının hem erkeğin zinetidir. (<a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#31">A’raf 7/31</a>) Süs eşyasının takılması da yasak değildir. (<a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#32">A’raf 7/32</a>) Kadın, insanlar için ziynet kılındığından (<a href="http://suleymaniyevakfimeali.com/Meal/Al-i_imran.htm#14">Al-i İmran 3/14</a>) bu ayetteki ziynet, kadına ait güzelliklerden başkası olamaz. Âyette geçen “gizledikleri ziynetleri” ifadesi de bu anlamı destekler. Çünkü kadın, vücudu örtülü olduğu halde dans ederek, oynayarak, sesiyle veya yürüyüşüyle gizli güzelliklerinin bilinmesini sağlayabilir.
+
+	<strong>[2*]</strong> “görünen kısım”ifadesinin başörtüden önce geçmesinden, yüzün görünen güzelliklerden olduğu anlaşılır.
+
+	<strong>[3*]</strong> Esirler ve küçük çocuklar ile ilgili özel hükümler <a href="http://suleymaniyevakfimeali.com/Meal/Nur.htm#58">Nur 24/58.</a> âyette gelecektir.
+
+	<strong>[4*]</strong> Kadın, ayağını farklı şekilde yere basarak sağa-sola eğilip güzelliklerini göstermeye çalışabilir. Bu ayet kadınların, erkekler karşısında bu gibi davranışlarını da yasaklamıştır.
+<strong>[*]</strong> Bakirelerle ilgili müteşâbih âyet:
+
+	Şu âyet, evlenecek genç kızlara baskı yapılmasını yasaklamaktadır.
+
+	وَلَا تُكْرِهُوا فَتَيَاتِكُمْ عَلَى الْبِغَاءِ إِنْ أَرَدْنَ تَحَصُّنًا لِتَبْتَغُوا عَرَضَ الْحَيَاةِ الدُّنْيَا وَمَنْ يُكْرِهْهُنَّ فَإِنَّ اللَّهَ مِنْ بَعْدِ إِكْرَاهِهِنَّ غَفُورٌ رَحِيمٌ
+
+	“Evlenmek isterlerse kızlarınızı, şu hayatın malını arzu ederek aşırı davranışlara zorlamayın.” (Nur 24/33)
+
+	Ayette geçen فَتَيَات = genç kızlar, bakire kızlardır.
+
+	إِنْ أَرَدْنَ تَحَصُّنًا (in eredne tehassunen) =evlenmek isterlerse, anlamına gelir.
+
+	تَحَصُّنً = tehassun kelimesinin buradaki anlamı muhsana olmaktır. Muhsana, Nisa 4/24. âyette evli,&nbsp; <a href="http://suleymaniyevakfimeali.com/Meal/Nisa.htm#25">Nisa 4/25</a>. âyette de namuslu anlamında kullanılmıştır. Gençliğinin baharında olan genç kızlar zaten namuslu olacakları için âyetin anlamı “evlenmek isterlerse” şeklindedir. Bu âyet evlenme ile ilgili olduğundan başka bir anlama çekilmesi imkânsızdır.
+
+	Kur'ân, makrû’ (مقروء) = bütünlük ve küme anlamında isim olarak da kullanılır. (<strong>Lisan’ul-arab</strong>) Kelimenin çoğulu yoktur; tekil için de çoğul için de kullanıldığı için kur’ân = قُرْآن kelimesine “kur’ânlar” diye de anlam verilebilir.
+
+	Ayet kümeleri, işlenen konu açısından aralarında benzerlik bulunan ayetlerin, bir araya getirilmesiyle oluşturulur. Küme tamamlanmadan istenen açıklamaya ulaşılamaz. Allah Teâlâ şöyle demiştir:
+
+	Onu kur’ânlar halinde böldük ki insanlar müks içinde iken onu onlara okuyasın. (<a href="http://suleymaniyevakfimeali.com/Meal/isra.htm#106">İsrâ 17/106</a>)
+
+	Müks = مُكْث, “durup beklemek” demektir. Ayetlerin açıklamasına ancak bir ilim heyeti birlikte ulaşabilir. İlgili ayetlerden biri de şöyledir:
+
+	Bu bir kitaptır ki, ayetleri; bilenlerden oluşan bir topluluk için Arapça kur’ânlar halinde açıklanmıştır. (<a href="http://suleymaniyevakfimeali.com/Meal/Fussilet.htm#13">Fussilet 41/3</a>)
+
+	Bu yöntem sahabeden sonra unutulmaya başlandığı için ayetlere verilen meallerde büyük yanlışlar vardır. Buradaki meal, o yanlışlardan biridir.
+<strong>[1*]&nbsp;</strong>Burada kelimenin asıl anlamı “kör pencere”dir. Orası, dışarıdan içeriye ses ve ışık geçirmez özellikte yalıtılmış olur. Ona sağır pencere de denir.&nbsp; Küçük bir hücre gibi olduğu için okuyucunun kolay anlaması için oyuk kelimesi tercih edilmiştir. Oyuğa konan lamba, onun her tarafını aydınlatır.
+
+	<strong>[2*]&nbsp;</strong>Yağlık zeytin, Güneş ışığını sabahtan akşama kadar tam alan ağacın zeytinidir. Böyle bir ağacın yağ kalitesi ve parlaklığı üst seviyede olur.
+
+	&nbsp;
+
+	<strong>[3*]&nbsp;</strong>Şâe = شاء fiilinin kökü, “bir şeyi var etme” anlamında olan şey =شيء’dir. Allah’ın bir şeyi var etmesi, gerekeni yaratması ile olur” (Müfredât).
+
+	&nbsp;
+<strong>[*]&nbsp;</strong>Şâe = شاء fiilinin kökü, “bir şeyi var etme” anlamında olan şey =شيء’dir. İnsanın bir şeyi var etmesi, gerekeni yapması ile olur” (Müfredât). Ayrıca <a href="https://www.suleymaniyevakfimeali.com/Meal/enam.htm#148">En’âm 6/148-149</a>’un dipnotlarına bkz. 
+
+	&nbsp;
+<strong>[1*]</strong> Resul (رسول), “birine gönderilen söz” anlamına geldiği gibi o sözü iletmek için gönderilen elçi anlamına da gelir (Müfredat). Allah’ın elçilerinin görevi, O’nun sözlerini insanlara ulaştırmaktır. Bu sebeple Kur’an’da geçen رسول اللّه = Allah’ın resulü sözlerinde asıl vurgu âyetleredir.&nbsp; Uhud savaşında nebîmiz’in öldüğüne dair haberlerin yayılması üzerine şu âyet inmişti:
+
+	“Muhammed sadece elçidir. Ondan önce de elçiler geldi. O ölse veya öldürülse, gerisin geri mi döneceksiniz?” ( <a href="http://suleymaniyevakfimeali.com/Meal/Al-i_%C4%B0mran.htm#144">Al-i İmrân 3/144</a>)
+
+	Allah’ın son resulü öldüğü için bizim muhatabımız olan resul, sadece Kur’an’dır.&nbsp; Resul kelimesine “resulün/elçinin getirdiği” meali bunun için verilmiştir. Allah Teâlâ şöyle buyurur:
+
+	"Resullere apaçık tebliğden başka ne düşer?"&nbsp; (<a href="http://suleymaniyevakfimeali.com/Meal/Nahl.htm#35">Nahl 16/35</a>)
+
+	"Ey Resul! Rabbinden sana indirileni tebliğ et, bunu yapmazsan onun resullüğünü yapmamış olursun" (<a href="http://suleymaniyevakfimeali.com/Meal/Maide.htm#67">Maide 5/67</a>)
+
+	<strong>[2*] </strong>İltifat <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#64">Bakara 2/64</a>
+<strong>[*]</strong> ...
+<strong>[*]&nbsp;</strong>Büluğa ermeden sadece üç vakitte izin aldıkları halde, büluğa erdikten sonra he zaman izin almaları gerekir.&nbsp;
+<strong>[*]</strong> Kadının tebberrücü (تَبَرَّج); yüz, boyun, boğaz ve gerdanındaki güzelliği göstermekle birlikte gözleriyle güzel bir bakış sergilemesidir. (el-Ayn) Güzel göz bebeğinin etrafındaki geniş beyazlığa da burç dendiği için (<strong>el-Ayn</strong>) göz bebeklerini büyültecek şekilde bakmak da teberrüc olur. Böyle bir teberrüc, kadına da erkeğe de yasaktır:
+
+	“Mümin erkeklere söyle, bakışlarını kıssınlar” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nur.htm#30">Nur 24/30</a>)&nbsp;
+
+	“Mümin kadınlara da söyle, bakışlarını kıssınlar” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nur.htm#31">Nur 24/31</a>)
+
+	Kadına da erkeğe de “... ferçlerini korusunlar.”(<a href="http://www.suleymaniyevakfimeali.com/Meal/Nur.htm#30">Nur 24/30 ve 31</a>) emri verilmiştir. Ferc, iki kolun arası ile iki bacağın arasındaki organlardır. (<strong>Lisan'ul-arab</strong>) Gerdanlık, iki kolun arasında yer aldığı için oranın örtülmesi de emredilmiştir. Bu emir kadınlar için kesindir. Erkekler için: “Onları daha da geliştirecek olan budur.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nur.htm#30">Nur 24/30</a>) ifadesi kullanıldığı için onlar, kadınlar kadar titiz olmayabilirler.
+
+	Kadınlara verilen: “Başörtülerinin bir kısmını yakalarının üstüne vursunlar.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Nur.htm#31">Nur 24/31</a>) emrinden dolayı onlar, âyette sayılan kişiler dışında kimsenin yanında boyunlarını ve başlarını açamayacaklardır.
+
+	Kadınlara ayrıca cilbab emri de verilmiştir: “Ey Nebî! Eşlerine, kızlarına ve inanıp güvenenlerin kadınlarına söyle de cilbablarını (büyük başörtülerini) üzerlerine yaklaştırsınlar. Bu, namuslu olduklarının anlaşılarak incitilmemeleri açısından daha uygundur.” (<a href="http://www.suleymaniyevakfimeali.com/Meal/Ahzab.htm#59">Ahzab 33/59</a>)
+
+	Oturup kalmış ve evlenme ümidi bitmiş bir kadın, güzel görünme gayretine de girmezse kimse tarafından rahatsız edilmez. Bu sebeple ayetten ilk anlaşılan, bu kadınların dışarıya cilbabsız çıkabilecekleridir. Ayette teberrüc kelimesi geçtiği için de güzelliğini gösterme gayretine girmeden boğazını ve gerdanlığını da açabileceği anlaşılabilir.
+<strong>[1*]</strong> Kadın, erkek bir arada veya ayrı ayrı.
+
+	<strong>[2*]</strong> عَلَى أَنفُسِكُمْ ifadesine dostlarınız anlamı vermemizin sebebi <a href="http://www.suleymaniyevakfimeali.com/Meal/Bakara.htm#84">Bakara 2/84</a>. âyette aynı ifadenin “soydaşlar” anlamında kullanılmış olmasıdır.
+```
+---
+## النور
+```read
+سُورَةٌ أَنزَلۡنَٰهَا وَفَرَضۡنَٰهَا وَأَنزَلۡنَا فِيهَآ ءَايَٰتِۭ بَيِّنَٰتٖ لَّعَلَّكُمۡ تَذَكَّرُونَ
+ٱلزَّانِيَةُ وَٱلزَّانِي فَٱجۡلِدُواْ كُلَّ وَٰحِدٖ مِّنۡهُمَا مِاْئَةَ جَلۡدَةٖۖ وَلَا تَأۡخُذۡكُم بِهِمَا رَأۡفَةٞ فِي دِينِ ٱللَّهِ إِن كُنتُمۡ تُؤۡمِنُونَ بِٱللَّهِ وَٱلۡيَوۡمِ ٱلۡأٓخِرِۖ وَلۡيَشۡهَدۡ عَذَابَهُمَا طَآئِفَةٞ مِّنَ ٱلۡمُؤۡمِنِينَ
+ٱلزَّانِي لَا يَنكِحُ إِلَّا زَانِيَةً أَوۡ مُشۡرِكَةٗ وَٱلزَّانِيَةُ لَا يَنكِحُهَآ إِلَّا زَانٍ أَوۡ مُشۡرِكٞۚ وَحُرِّمَ ذَٰلِكَ عَلَى ٱلۡمُؤۡمِنِينَ
+وَٱلَّذِينَ يَرۡمُونَ ٱلۡمُحۡصَنَٰتِ ثُمَّ لَمۡ يَأۡتُواْ بِأَرۡبَعَةِ شُهَدَآءَ فَٱجۡلِدُوهُمۡ ثَمَٰنِينَ جَلۡدَةٗ وَلَا تَقۡبَلُواْ لَهُمۡ شَهَٰدَةً أَبَدٗاۚ وَأُوْلَـٰٓئِكَ هُمُ ٱلۡفَٰسِقُونَ
+إِلَّا ٱلَّذِينَ تَابُواْ مِنۢ بَعۡدِ ذَٰلِكَ وَأَصۡلَحُواْ فَإِنَّ ٱللَّهَ غَفُورٞ رَّحِيمٞ
+وَٱلَّذِينَ يَرۡمُونَ أَزۡوَٰجَهُمۡ وَلَمۡ يَكُن لَّهُمۡ شُهَدَآءُ إِلَّآ أَنفُسُهُمۡ فَشَهَٰدَةُ أَحَدِهِمۡ أَرۡبَعُ شَهَٰدَٰتِۭ بِٱللَّهِ إِنَّهُۥ لَمِنَ ٱلصَّـٰدِقِينَ
+وَٱلۡخَٰمِسَةُ أَنَّ لَعۡنَتَ ٱللَّهِ عَلَيۡهِ إِن كَانَ مِنَ ٱلۡكَٰذِبِينَ
+وَيَدۡرَؤُاْ عَنۡهَا ٱلۡعَذَابَ أَن تَشۡهَدَ أَرۡبَعَ شَهَٰدَٰتِۭ بِٱللَّهِ إِنَّهُۥ لَمِنَ ٱلۡكَٰذِبِينَ
+وَٱلۡخَٰمِسَةَ أَنَّ غَضَبَ ٱللَّهِ عَلَيۡهَآ إِن كَانَ مِنَ ٱلصَّـٰدِقِينَ
+وَلَوۡلَا فَضۡلُ ٱللَّهِ عَلَيۡكُمۡ وَرَحۡمَتُهُۥ وَأَنَّ ٱللَّهَ تَوَّابٌ حَكِيمٌ
+إِنَّ ٱلَّذِينَ جَآءُو بِٱلۡإِفۡكِ عُصۡبَةٞ مِّنكُمۡۚ لَا تَحۡسَبُوهُ شَرّٗا لَّكُمۖ بَلۡ هُوَ خَيۡرٞ لَّكُمۡۚ لِكُلِّ ٱمۡرِيٕٖ مِّنۡهُم مَّا ٱكۡتَسَبَ مِنَ ٱلۡإِثۡمِۚ وَٱلَّذِي تَوَلَّىٰ كِبۡرَهُۥ مِنۡهُمۡ لَهُۥ عَذَابٌ عَظِيمٞ
+لَّوۡلَآ إِذۡ سَمِعۡتُمُوهُ ظَنَّ ٱلۡمُؤۡمِنُونَ وَٱلۡمُؤۡمِنَٰتُ بِأَنفُسِهِمۡ خَيۡرٗا وَقَالُواْ هَٰذَآ إِفۡكٞ مُّبِينٞ
+لَّوۡلَا جَآءُو عَلَيۡهِ بِأَرۡبَعَةِ شُهَدَآءَۚ فَإِذۡ لَمۡ يَأۡتُواْ بِٱلشُّهَدَآءِ فَأُوْلَـٰٓئِكَ عِندَ ٱللَّهِ هُمُ ٱلۡكَٰذِبُونَ
+وَلَوۡلَا فَضۡلُ ٱللَّهِ عَلَيۡكُمۡ وَرَحۡمَتُهُۥ فِي ٱلدُّنۡيَا وَٱلۡأٓخِرَةِ لَمَسَّكُمۡ فِي مَآ أَفَضۡتُمۡ فِيهِ عَذَابٌ عَظِيمٌ
+إِذۡ تَلَقَّوۡنَهُۥ بِأَلۡسِنَتِكُمۡ وَتَقُولُونَ بِأَفۡوَاهِكُم مَّا لَيۡسَ لَكُم بِهِۦ عِلۡمٞ وَتَحۡسَبُونَهُۥ هَيِّنٗا وَهُوَ عِندَ ٱللَّهِ عَظِيمٞ
+وَلَوۡلَآ إِذۡ سَمِعۡتُمُوهُ قُلۡتُم مَّا يَكُونُ لَنَآ أَن نَّتَكَلَّمَ بِهَٰذَا سُبۡحَٰنَكَ هَٰذَا بُهۡتَٰنٌ عَظِيمٞ
+يَعِظُكُمُ ٱللَّهُ أَن تَعُودُواْ لِمِثۡلِهِۦٓ أَبَدًا إِن كُنتُم مُّؤۡمِنِينَ
+وَيُبَيِّنُ ٱللَّهُ لَكُمُ ٱلۡأٓيَٰتِۚ وَٱللَّهُ عَلِيمٌ حَكِيمٌ
+إِنَّ ٱلَّذِينَ يُحِبُّونَ أَن تَشِيعَ ٱلۡفَٰحِشَةُ فِي ٱلَّذِينَ ءَامَنُواْ لَهُمۡ عَذَابٌ أَلِيمٞ فِي ٱلدُّنۡيَا وَٱلۡأٓخِرَةِۚ وَٱللَّهُ يَعۡلَمُ وَأَنتُمۡ لَا تَعۡلَمُونَ
+وَلَوۡلَا فَضۡلُ ٱللَّهِ عَلَيۡكُمۡ وَرَحۡمَتُهُۥ وَأَنَّ ٱللَّهَ رَءُوفٞ رَّحِيمٞ
+۞يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُواْ لَا تَتَّبِعُواْ خُطُوَٰتِ ٱلشَّيۡطَٰنِۚ وَمَن يَتَّبِعۡ خُطُوَٰتِ ٱلشَّيۡطَٰنِ فَإِنَّهُۥ يَأۡمُرُ بِٱلۡفَحۡشَآءِ وَٱلۡمُنكَرِۚ وَلَوۡلَا فَضۡلُ ٱللَّهِ عَلَيۡكُمۡ وَرَحۡمَتُهُۥ مَا زَكَىٰ مِنكُم مِّنۡ أَحَدٍ أَبَدٗا وَلَٰكِنَّ ٱللَّهَ يُزَكِّي مَن يَشَآءُۗ وَٱللَّهُ سَمِيعٌ عَلِيمٞ
+وَلَا يَأۡتَلِ أُوْلُواْ ٱلۡفَضۡلِ مِنكُمۡ وَٱلسَّعَةِ أَن يُؤۡتُوٓاْ أُوْلِي ٱلۡقُرۡبَىٰ وَٱلۡمَسَٰكِينَ وَٱلۡمُهَٰجِرِينَ فِي سَبِيلِ ٱللَّهِۖ وَلۡيَعۡفُواْ وَلۡيَصۡفَحُوٓاْۗ أَلَا تُحِبُّونَ أَن يَغۡفِرَ ٱللَّهُ لَكُمۡۚ وَٱللَّهُ غَفُورٞ رَّحِيمٌ
+إِنَّ ٱلَّذِينَ يَرۡمُونَ ٱلۡمُحۡصَنَٰتِ ٱلۡغَٰفِلَٰتِ ٱلۡمُؤۡمِنَٰتِ لُعِنُواْ فِي ٱلدُّنۡيَا وَٱلۡأٓخِرَةِ وَلَهُمۡ عَذَابٌ عَظِيمٞ
+يَوۡمَ تَشۡهَدُ عَلَيۡهِمۡ أَلۡسِنَتُهُمۡ وَأَيۡدِيهِمۡ وَأَرۡجُلُهُم بِمَا كَانُواْ يَعۡمَلُونَ
+يَوۡمَئِذٖ يُوَفِّيهِمُ ٱللَّهُ دِينَهُمُ ٱلۡحَقَّ وَيَعۡلَمُونَ أَنَّ ٱللَّهَ هُوَ ٱلۡحَقُّ ٱلۡمُبِينُ
+ٱلۡخَبِيثَٰتُ لِلۡخَبِيثِينَ وَٱلۡخَبِيثُونَ لِلۡخَبِيثَٰتِۖ وَٱلطَّيِّبَٰتُ لِلطَّيِّبِينَ وَٱلطَّيِّبُونَ لِلطَّيِّبَٰتِۚ أُوْلَـٰٓئِكَ مُبَرَّءُونَ مِمَّا يَقُولُونَۖ لَهُم مَّغۡفِرَةٞ وَرِزۡقٞ كَرِيمٞ
+يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُواْ لَا تَدۡخُلُواْ بُيُوتًا غَيۡرَ بُيُوتِكُمۡ حَتَّىٰ تَسۡتَأۡنِسُواْ وَتُسَلِّمُواْ عَلَىٰٓ أَهۡلِهَاۚ ذَٰلِكُمۡ خَيۡرٞ لَّكُمۡ لَعَلَّكُمۡ تَذَكَّرُونَ
+فَإِن لَّمۡ تَجِدُواْ فِيهَآ أَحَدٗا فَلَا تَدۡخُلُوهَا حَتَّىٰ يُؤۡذَنَ لَكُمۡۖ وَإِن قِيلَ لَكُمُ ٱرۡجِعُواْ فَٱرۡجِعُواْۖ هُوَ أَزۡكَىٰ لَكُمۡۚ وَٱللَّهُ بِمَا تَعۡمَلُونَ عَلِيمٞ
+لَّيۡسَ عَلَيۡكُمۡ جُنَاحٌ أَن تَدۡخُلُواْ بُيُوتًا غَيۡرَ مَسۡكُونَةٖ فِيهَا مَتَٰعٞ لَّكُمۡۚ وَٱللَّهُ يَعۡلَمُ مَا تُبۡدُونَ وَمَا تَكۡتُمُونَ
+قُل لِّلۡمُؤۡمِنِينَ يَغُضُّواْ مِنۡ أَبۡصَٰرِهِمۡ وَيَحۡفَظُواْ فُرُوجَهُمۡۚ ذَٰلِكَ أَزۡكَىٰ لَهُمۡۚ إِنَّ ٱللَّهَ خَبِيرُۢ بِمَا يَصۡنَعُونَ
+وَقُل لِّلۡمُؤۡمِنَٰتِ يَغۡضُضۡنَ مِنۡ أَبۡصَٰرِهِنَّ وَيَحۡفَظۡنَ فُرُوجَهُنَّ وَلَا يُبۡدِينَ زِينَتَهُنَّ إِلَّا مَا ظَهَرَ مِنۡهَاۖ وَلۡيَضۡرِبۡنَ بِخُمُرِهِنَّ عَلَىٰ جُيُوبِهِنَّۖ وَلَا يُبۡدِينَ زِينَتَهُنَّ إِلَّا لِبُعُولَتِهِنَّ أَوۡ ءَابَآئِهِنَّ أَوۡ ءَابَآءِ بُعُولَتِهِنَّ أَوۡ أَبۡنَآئِهِنَّ أَوۡ أَبۡنَآءِ بُعُولَتِهِنَّ أَوۡ إِخۡوَٰنِهِنَّ أَوۡ بَنِيٓ إِخۡوَٰنِهِنَّ أَوۡ بَنِيٓ أَخَوَٰتِهِنَّ أَوۡ نِسَآئِهِنَّ أَوۡ مَا مَلَكَتۡ أَيۡمَٰنُهُنَّ أَوِ ٱلتَّـٰبِعِينَ غَيۡرِ أُوْلِي ٱلۡإِرۡبَةِ مِنَ ٱلرِّجَالِ أَوِ ٱلطِّفۡلِ ٱلَّذِينَ لَمۡ يَظۡهَرُواْ عَلَىٰ عَوۡرَٰتِ ٱلنِّسَآءِۖ وَلَا يَضۡرِبۡنَ بِأَرۡجُلِهِنَّ لِيُعۡلَمَ مَا يُخۡفِينَ مِن زِينَتِهِنَّۚ وَتُوبُوٓاْ إِلَى ٱللَّهِ جَمِيعًا أَيُّهَ ٱلۡمُؤۡمِنُونَ لَعَلَّكُمۡ تُفۡلِحُونَ
+وَأَنكِحُواْ ٱلۡأَيَٰمَىٰ مِنكُمۡ وَٱلصَّـٰلِحِينَ مِنۡ عِبَادِكُمۡ وَإِمَآئِكُمۡۚ إِن يَكُونُواْ فُقَرَآءَ يُغۡنِهِمُ ٱللَّهُ مِن فَضۡلِهِۦۗ وَٱللَّهُ وَٰسِعٌ عَلِيمٞ
+وَلۡيَسۡتَعۡفِفِ ٱلَّذِينَ لَا يَجِدُونَ نِكَاحًا حَتَّىٰ يُغۡنِيَهُمُ ٱللَّهُ مِن فَضۡلِهِۦۗ وَٱلَّذِينَ يَبۡتَغُونَ ٱلۡكِتَٰبَ مِمَّا مَلَكَتۡ أَيۡمَٰنُكُمۡ فَكَاتِبُوهُمۡ إِنۡ عَلِمۡتُمۡ فِيهِمۡ خَيۡرٗاۖ وَءَاتُوهُم مِّن مَّالِ ٱللَّهِ ٱلَّذِيٓ ءَاتَىٰكُمۡۚ وَلَا تُكۡرِهُواْ فَتَيَٰتِكُمۡ عَلَى ٱلۡبِغَآءِ إِنۡ أَرَدۡنَ تَحَصُّنٗا لِّتَبۡتَغُواْ عَرَضَ ٱلۡحَيَوٰةِ ٱلدُّنۡيَاۚ وَمَن يُكۡرِههُّنَّ فَإِنَّ ٱللَّهَ مِنۢ بَعۡدِ إِكۡرَٰهِهِنَّ غَفُورٞ رَّحِيمٞ
+وَلَقَدۡ أَنزَلۡنَآ إِلَيۡكُمۡ ءَايَٰتٖ مُّبَيِّنَٰتٖ وَمَثَلٗا مِّنَ ٱلَّذِينَ خَلَوۡاْ مِن قَبۡلِكُمۡ وَمَوۡعِظَةٗ لِّلۡمُتَّقِينَ
+۞ٱللَّهُ نُورُ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِۚ مَثَلُ نُورِهِۦ كَمِشۡكَوٰةٖ فِيهَا مِصۡبَاحٌۖ ٱلۡمِصۡبَاحُ فِي زُجَاجَةٍۖ ٱلزُّجَاجَةُ كَأَنَّهَا كَوۡكَبٞ دُرِّيّٞ يُوقَدُ مِن شَجَرَةٖ مُّبَٰرَكَةٖ زَيۡتُونَةٖ لَّا شَرۡقِيَّةٖ وَلَا غَرۡبِيَّةٖ يَكَادُ زَيۡتُهَا يُضِيٓءُ وَلَوۡ لَمۡ تَمۡسَسۡهُ نَارٞۚ نُّورٌ عَلَىٰ نُورٖۚ يَهۡدِي ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُۚ وَيَضۡرِبُ ٱللَّهُ ٱلۡأَمۡثَٰلَ لِلنَّاسِۗ وَٱللَّهُ بِكُلِّ شَيۡءٍ عَلِيمٞ
+فِي بُيُوتٍ أَذِنَ ٱللَّهُ أَن تُرۡفَعَ وَيُذۡكَرَ فِيهَا ٱسۡمُهُۥ يُسَبِّحُ لَهُۥ فِيهَا بِٱلۡغُدُوِّ وَٱلۡأٓصَالِ
+رِجَالٞ لَّا تُلۡهِيهِمۡ تِجَٰرَةٞ وَلَا بَيۡعٌ عَن ذِكۡرِ ٱللَّهِ وَإِقَامِ ٱلصَّلَوٰةِ وَإِيتَآءِ ٱلزَّكَوٰةِ يَخَافُونَ يَوۡمٗا تَتَقَلَّبُ فِيهِ ٱلۡقُلُوبُ وَٱلۡأَبۡصَٰرُ
+لِيَجۡزِيَهُمُ ٱللَّهُ أَحۡسَنَ مَا عَمِلُواْ وَيَزِيدَهُم مِّن فَضۡلِهِۦۗ وَٱللَّهُ يَرۡزُقُ مَن يَشَآءُ بِغَيۡرِ حِسَابٖ
+وَٱلَّذِينَ كَفَرُوٓاْ أَعۡمَٰلُهُمۡ كَسَرَابِۭ بِقِيعَةٖ يَحۡسَبُهُ ٱلظَّمۡـَٔانُ مَآءً حَتَّىٰٓ إِذَا جَآءَهُۥ لَمۡ يَجِدۡهُ شَيۡـٔٗا وَوَجَدَ ٱللَّهَ عِندَهُۥ فَوَفَّىٰهُ حِسَابَهُۥۗ وَٱللَّهُ سَرِيعُ ٱلۡحِسَابِ
+أَوۡ كَظُلُمَٰتٖ فِي بَحۡرٖ لُّجِّيّٖ يَغۡشَىٰهُ مَوۡجٞ مِّن فَوۡقِهِۦ مَوۡجٞ مِّن فَوۡقِهِۦ سَحَابٞۚ ظُلُمَٰتُۢ بَعۡضُهَا فَوۡقَ بَعۡضٍ إِذَآ أَخۡرَجَ يَدَهُۥ لَمۡ يَكَدۡ يَرَىٰهَاۗ وَمَن لَّمۡ يَجۡعَلِ ٱللَّهُ لَهُۥ نُورٗا فَمَا لَهُۥ مِن نُّورٍ
+أَلَمۡ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِي ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِ وَٱلطَّيۡرُ صَـٰٓفَّـٰتٖۖ كُلّٞ قَدۡ عَلِمَ صَلَاتَهُۥ وَتَسۡبِيحَهُۥۗ وَٱللَّهُ عَلِيمُۢ بِمَا يَفۡعَلُونَ
+وَلِلَّهِ مُلۡكُ ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِۖ وَإِلَى ٱللَّهِ ٱلۡمَصِيرُ
+أَلَمۡ تَرَ أَنَّ ٱللَّهَ يُزۡجِي سَحَابٗا ثُمَّ يُؤَلِّفُ بَيۡنَهُۥ ثُمَّ يَجۡعَلُهُۥ رُكَامٗا فَتَرَى ٱلۡوَدۡقَ يَخۡرُجُ مِنۡ خِلَٰلِهِۦ وَيُنَزِّلُ مِنَ ٱلسَّمَآءِ مِن جِبَالٖ فِيهَا مِنۢ بَرَدٖ فَيُصِيبُ بِهِۦ مَن يَشَآءُ وَيَصۡرِفُهُۥ عَن مَّن يَشَآءُۖ يَكَادُ سَنَا بَرۡقِهِۦ يَذۡهَبُ بِٱلۡأَبۡصَٰرِ
+يُقَلِّبُ ٱللَّهُ ٱلَّيۡلَ وَٱلنَّهَارَۚ إِنَّ فِي ذَٰلِكَ لَعِبۡرَةٗ لِّأُوْلِي ٱلۡأَبۡصَٰرِ
+وَٱللَّهُ خَلَقَ كُلَّ دَآبَّةٖ مِّن مَّآءٖۖ فَمِنۡهُم مَّن يَمۡشِي عَلَىٰ بَطۡنِهِۦ وَمِنۡهُم مَّن يَمۡشِي عَلَىٰ رِجۡلَيۡنِ وَمِنۡهُم مَّن يَمۡشِي عَلَىٰٓ أَرۡبَعٖۚ يَخۡلُقُ ٱللَّهُ مَا يَشَآءُۚ إِنَّ ٱللَّهَ عَلَىٰ كُلِّ شَيۡءٖ قَدِيرٞ
+لَّقَدۡ أَنزَلۡنَآ ءَايَٰتٖ مُّبَيِّنَٰتٖۚ وَٱللَّهُ يَهۡدِي مَن يَشَآءُ إِلَىٰ صِرَٰطٖ مُّسۡتَقِيمٖ
+وَيَقُولُونَ ءَامَنَّا بِٱللَّهِ وَبِٱلرَّسُولِ وَأَطَعۡنَا ثُمَّ يَتَوَلَّىٰ فَرِيقٞ مِّنۡهُم مِّنۢ بَعۡدِ ذَٰلِكَۚ وَمَآ أُوْلَـٰٓئِكَ بِٱلۡمُؤۡمِنِينَ
+وَإِذَا دُعُوٓاْ إِلَى ٱللَّهِ وَرَسُولِهِۦ لِيَحۡكُمَ بَيۡنَهُمۡ إِذَا فَرِيقٞ مِّنۡهُم مُّعۡرِضُونَ
+وَإِن يَكُن لَّهُمُ ٱلۡحَقُّ يَأۡتُوٓاْ إِلَيۡهِ مُذۡعِنِينَ
+أَفِي قُلُوبِهِم مَّرَضٌ أَمِ ٱرۡتَابُوٓاْ أَمۡ يَخَافُونَ أَن يَحِيفَ ٱللَّهُ عَلَيۡهِمۡ وَرَسُولُهُۥۚ بَلۡ أُوْلَـٰٓئِكَ هُمُ ٱلظَّـٰلِمُونَ
+إِنَّمَا كَانَ قَوۡلَ ٱلۡمُؤۡمِنِينَ إِذَا دُعُوٓاْ إِلَى ٱللَّهِ وَرَسُولِهِۦ لِيَحۡكُمَ بَيۡنَهُمۡ أَن يَقُولُواْ سَمِعۡنَا وَأَطَعۡنَاۚ وَأُوْلَـٰٓئِكَ هُمُ ٱلۡمُفۡلِحُونَ
+وَمَن يُطِعِ ٱللَّهَ وَرَسُولَهُۥ وَيَخۡشَ ٱللَّهَ وَيَتَّقۡهِ فَأُوْلَـٰٓئِكَ هُمُ ٱلۡفَآئِزُونَ
+۞وَأَقۡسَمُواْ بِٱللَّهِ جَهۡدَ أَيۡمَٰنِهِمۡ لَئِنۡ أَمَرۡتَهُمۡ لَيَخۡرُجُنَّۖ قُل لَّا تُقۡسِمُواْۖ طَاعَةٞ مَّعۡرُوفَةٌۚ إِنَّ ٱللَّهَ خَبِيرُۢ بِمَا تَعۡمَلُونَ
+قُلۡ أَطِيعُواْ ٱللَّهَ وَأَطِيعُواْ ٱلرَّسُولَۖ فَإِن تَوَلَّوۡاْ فَإِنَّمَا عَلَيۡهِ مَا حُمِّلَ وَعَلَيۡكُم مَّا حُمِّلۡتُمۡۖ وَإِن تُطِيعُوهُ تَهۡتَدُواْۚ وَمَا عَلَى ٱلرَّسُولِ إِلَّا ٱلۡبَلَٰغُ ٱلۡمُبِينُ
+وَعَدَ ٱللَّهُ ٱلَّذِينَ ءَامَنُواْ مِنكُمۡ وَعَمِلُواْ ٱلصَّـٰلِحَٰتِ لَيَسۡتَخۡلِفَنَّهُمۡ فِي ٱلۡأَرۡضِ كَمَا ٱسۡتَخۡلَفَ ٱلَّذِينَ مِن قَبۡلِهِمۡ وَلَيُمَكِّنَنَّ لَهُمۡ دِينَهُمُ ٱلَّذِي ٱرۡتَضَىٰ لَهُمۡ وَلَيُبَدِّلَنَّهُم مِّنۢ بَعۡدِ خَوۡفِهِمۡ أَمۡنٗاۚ يَعۡبُدُونَنِي لَا يُشۡرِكُونَ بِي شَيۡـٔٗاۚ وَمَن كَفَرَ بَعۡدَ ذَٰلِكَ فَأُوْلَـٰٓئِكَ هُمُ ٱلۡفَٰسِقُونَ
+وَأَقِيمُواْ ٱلصَّلَوٰةَ وَءَاتُواْ ٱلزَّكَوٰةَ وَأَطِيعُواْ ٱلرَّسُولَ لَعَلَّكُمۡ تُرۡحَمُونَ
+لَا تَحۡسَبَنَّ ٱلَّذِينَ كَفَرُواْ مُعۡجِزِينَ فِي ٱلۡأَرۡضِۚ وَمَأۡوَىٰهُمُ ٱلنَّارُۖ وَلَبِئۡسَ ٱلۡمَصِيرُ
+يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُواْ لِيَسۡتَـٔۡذِنكُمُ ٱلَّذِينَ مَلَكَتۡ أَيۡمَٰنُكُمۡ وَٱلَّذِينَ لَمۡ يَبۡلُغُواْ ٱلۡحُلُمَ مِنكُمۡ ثَلَٰثَ مَرَّـٰتٖۚ مِّن قَبۡلِ صَلَوٰةِ ٱلۡفَجۡرِ وَحِينَ تَضَعُونَ ثِيَابَكُم مِّنَ ٱلظَّهِيرَةِ وَمِنۢ بَعۡدِ صَلَوٰةِ ٱلۡعِشَآءِۚ ثَلَٰثُ عَوۡرَٰتٖ لَّكُمۡۚ لَيۡسَ عَلَيۡكُمۡ وَلَا عَلَيۡهِمۡ جُنَاحُۢ بَعۡدَهُنَّۚ طَوَّـٰفُونَ عَلَيۡكُم بَعۡضُكُمۡ عَلَىٰ بَعۡضٖۚ كَذَٰلِكَ يُبَيِّنُ ٱللَّهُ لَكُمُ ٱلۡأٓيَٰتِۗ وَٱللَّهُ عَلِيمٌ حَكِيمٞ
+وَإِذَا بَلَغَ ٱلۡأَطۡفَٰلُ مِنكُمُ ٱلۡحُلُمَ فَلۡيَسۡتَـٔۡذِنُواْ كَمَا ٱسۡتَـٔۡذَنَ ٱلَّذِينَ مِن قَبۡلِهِمۡۚ كَذَٰلِكَ يُبَيِّنُ ٱللَّهُ لَكُمۡ ءَايَٰتِهِۦۗ وَٱللَّهُ عَلِيمٌ حَكِيمٞ
+وَٱلۡقَوَٰعِدُ مِنَ ٱلنِّسَآءِ ٱلَّـٰتِي لَا يَرۡجُونَ نِكَاحٗا فَلَيۡسَ عَلَيۡهِنَّ جُنَاحٌ أَن يَضَعۡنَ ثِيَابَهُنَّ غَيۡرَ مُتَبَرِّجَٰتِۭ بِزِينَةٖۖ وَأَن يَسۡتَعۡفِفۡنَ خَيۡرٞ لَّهُنَّۗ وَٱللَّهُ سَمِيعٌ عَلِيمٞ
+لَّيۡسَ عَلَى ٱلۡأَعۡمَىٰ حَرَجٞ وَلَا عَلَى ٱلۡأَعۡرَجِ حَرَجٞ وَلَا عَلَى ٱلۡمَرِيضِ حَرَجٞ وَلَا عَلَىٰٓ أَنفُسِكُمۡ أَن تَأۡكُلُواْ مِنۢ بُيُوتِكُمۡ أَوۡ بُيُوتِ ءَابَآئِكُمۡ أَوۡ بُيُوتِ أُمَّهَٰتِكُمۡ أَوۡ بُيُوتِ إِخۡوَٰنِكُمۡ أَوۡ بُيُوتِ أَخَوَٰتِكُمۡ أَوۡ بُيُوتِ أَعۡمَٰمِكُمۡ أَوۡ بُيُوتِ عَمَّـٰتِكُمۡ أَوۡ بُيُوتِ أَخۡوَٰلِكُمۡ أَوۡ بُيُوتِ خَٰلَٰتِكُمۡ أَوۡ مَا مَلَكۡتُم مَّفَاتِحَهُۥٓ أَوۡ صَدِيقِكُمۡۚ لَيۡسَ عَلَيۡكُمۡ جُنَاحٌ أَن تَأۡكُلُواْ جَمِيعًا أَوۡ أَشۡتَاتٗاۚ فَإِذَا دَخَلۡتُم بُيُوتٗا فَسَلِّمُواْ عَلَىٰٓ أَنفُسِكُمۡ تَحِيَّةٗ مِّنۡ عِندِ ٱللَّهِ مُبَٰرَكَةٗ طَيِّبَةٗۚ كَذَٰلِكَ يُبَيِّنُ ٱللَّهُ لَكُمُ ٱلۡأٓيَٰتِ لَعَلَّكُمۡ تَعۡقِلُونَ
+إِنَّمَا ٱلۡمُؤۡمِنُونَ ٱلَّذِينَ ءَامَنُواْ بِٱللَّهِ وَرَسُولِهِۦ وَإِذَا كَانُواْ مَعَهُۥ عَلَىٰٓ أَمۡرٖ جَامِعٖ لَّمۡ يَذۡهَبُواْ حَتَّىٰ يَسۡتَـٔۡذِنُوهُۚ إِنَّ ٱلَّذِينَ يَسۡتَـٔۡذِنُونَكَ أُوْلَـٰٓئِكَ ٱلَّذِينَ يُؤۡمِنُونَ بِٱللَّهِ وَرَسُولِهِۦۚ فَإِذَا ٱسۡتَـٔۡذَنُوكَ لِبَعۡضِ شَأۡنِهِمۡ فَأۡذَن لِّمَن شِئۡتَ مِنۡهُمۡ وَٱسۡتَغۡفِرۡ لَهُمُ ٱللَّهَۚ إِنَّ ٱللَّهَ غَفُورٞ رَّحِيمٞ
+لَّا تَجۡعَلُواْ دُعَآءَ ٱلرَّسُولِ بَيۡنَكُمۡ كَدُعَآءِ بَعۡضِكُم بَعۡضٗاۚ قَدۡ يَعۡلَمُ ٱللَّهُ ٱلَّذِينَ يَتَسَلَّلُونَ مِنكُمۡ لِوَاذٗاۚ فَلۡيَحۡذَرِ ٱلَّذِينَ يُخَالِفُونَ عَنۡ أَمۡرِهِۦٓ أَن تُصِيبَهُمۡ فِتۡنَةٌ أَوۡ يُصِيبَهُمۡ عَذَابٌ أَلِيمٌ
+أَلَآ إِنَّ لِلَّهِ مَا فِي ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضِۖ قَدۡ يَعۡلَمُ مَآ أَنتُمۡ عَلَيۡهِ وَيَوۡمَ يُرۡجَعُونَ إِلَيۡهِ فَيُنَبِّئُهُم بِمَا عَمِلُواْۗ وَٱللَّهُ بِكُلِّ شَيۡءٍ عَلِيمُۢ
+```
+---
+## An-Nur
+```read
+[This is] a surah which We have sent down and made [that within it] obligatory and revealed therein verses of clear evidence that you might remember
+The [unmarried] woman or [unmarried] man found guilty of sexual intercourse - lash each one of them with a hundred lashes, and do not be taken by pity for them in the religion of Allah, if you should believe in Allah and the Last Day. And let a group of the believers witness their punishment
+The fornicator does not marry except a [female] fornicator or polytheist, and none marries her except a fornicator or a polytheist, and that has been made unlawful to the believers
+And those who accuse chaste women and then do not produce four witnesses - lash them with eighty lashes and do not accept from them testimony ever after. And those are the defiantly disobedient
+Except for those who repent thereafter and reform, for indeed, Allah is Forgiving and Merciful
+And those who accuse their wives [of adultery] and have no witnesses except themselves - then the witness of one of them [shall be] four testimonies [swearing] by Allah that indeed, he is of the truthful
+And the fifth [oath will be] that the curse of Allah be upon him if he should be among the liars
+But it will prevent punishment from her if she gives four testimonies [swearing] by Allah that indeed, he is of the liars
+And the fifth [oath will be] that the wrath of Allah be upon her if he was of the truthful
+And if not for the favor of Allah upon you and His mercy... and because Allah is Accepting of repentance and Wise
+Indeed, those who came with falsehood are a group among you. Do not think it bad for you; rather it is good for you. For every person among them is what [punishment] he has earned from the sin, and he who took upon himself the greater portion thereof - for him is a great punishment
+Why, when you heard it, did not the believing men and believing women think good of one another and say, "This is an obvious falsehood
+Why did they [who slandered] not produce for it four witnesses? And when they do not produce the witnesses, then it is they, in the sight of Allah, who are the liars
+And if it had not been for the favor of Allah upon you and His mercy in this world and the Hereafter, you would have been touched for that [lie] in which you were involved by a great punishment
+When you received it with your tongues and said with your mouths that of which you had no knowledge and thought it was insignificant while it was, in the sight of Allah, tremendous
+And why, when you heard it, did you not say, "It is not for us to speak of this. Exalted are You, [O Allah]; this is a great slander
+Allah warns you against returning to the likes of this [conduct], ever, if you should be believers
+And Allah makes clear to you the verses, and Allah is Knowing and Wise
+Indeed, those who like that immorality should be spread [or publicized] among those who have believed will have a painful punishment in this world and the Hereafter. And Allah knows and you do not know
+And if it had not been for the favor of Allah upon you and His mercy... and because Allah is Kind and Merciful
+O you who have believed, do not follow the footsteps of Satan. And whoever follows the footsteps of Satan - indeed, he enjoins immorality and wrongdoing. And if not for the favor of Allah upon you and His mercy, not one of you would have been pure, ever, but Allah purifies whom He wills, and Allah is Hearing and Knowing
+And let not those of virtue among you and wealth swear not to give [aid] to their relatives and the needy and the emigrants for the cause of Allah, and let them pardon and overlook. Would you not like that Allah should forgive you? And Allah is Forgiving and Merciful
+Indeed, those who [falsely] accuse chaste, unaware and believing women are cursed in this world and the Hereafter; and they will have a great punishment
+On a Day when their tongues, their hands and their feet will bear witness against them as to what they used to do
+That Day, Allah will pay them in full their deserved recompense, and they will know that it is Allah who is the perfect in justice
+Evil words are for evil men, and evil men are [subjected] to evil words. And good words are for good men, and good men are [an object] of good words. Those [good people] are declared innocent of what the slanderers say. For them is forgiveness and noble provision
+O you who have believed, do not enter houses other than your own houses until you ascertain welcome and greet their inhabitants. That is best for you; perhaps you will be reminded
+And if you do not find anyone therein, do not enter them until permission has been given you. And if it is said to you, "Go back," then go back; it is purer for you. And Allah is Knowing of what you do
+There is no blame upon you for entering houses not inhabited in which there is convenience for you. And Allah knows what you reveal and what you conceal
+Tell the believing men to reduce [some] of their vision and guard their private parts. That is purer for them. Indeed, Allah is Acquainted with what they do
+And tell the believing women to reduce [some] of their vision and guard their private parts and not expose their adornment except that which [necessarily] appears thereof and to wrap [a portion of] their headcovers over their chests and not expose their adornment except to their husbands, their fathers, their husbands' fathers, their sons, their husbands' sons, their brothers, their brothers' sons, their sisters' sons, their women, that which their right hands possess, or those male attendants having no physical desire, or children who are not yet aware of the private aspects of women. And let them not stamp their feet to make known what they conceal of their adornment. And turn to Allah in repentance, all of you, O believers, that you might succeed
+And marry the unmarried among you and the righteous among your male slaves and female slaves. If they should be poor, Allah will enrich them from His bounty, and Allah is all-Encompassing and Knowing
+But let them who find not [the means for] marriage abstain [from sexual relations] until Allah enriches them from His bounty. And those who seek a contract [for eventual emancipation] from among whom your right hands possess - then make a contract with them if you know there is within them goodness and give them from the wealth of Allah which He has given you. And do not compel your slave girls to prostitution, if they desire chastity, to seek [thereby] the temporary interests of worldly life. And if someone should compel them, then indeed, Allah is [to them], after their compulsion, Forgiving and Merciful
+And We have certainly sent down to you distinct verses and examples from those who passed on before you and an admonition for those who fear Allah
+Allah is the Light of the heavens and the earth. The example of His light is like a niche within which is a lamp, the lamp is within glass, the glass as if it were a pearly [white] star lit from [the oil of] a blessed olive tree, neither of the east nor of the west, whose oil would almost glow even if untouched by fire. Light upon light. Allah guides to His light whom He wills. And Allah presents examples for the people, and Allah is Knowing of all things
+[Such niches are] in mosques which Allah has ordered to be raised and that His name be mentioned therein; exalting Him within them in the morning and the evenings
+[Are] men whom neither commerce nor sale distracts from the remembrance of Allah and performance of prayer and giving of zakah. They fear a Day in which the hearts and eyes will [fearfully] turn about
+That Allah may reward them [according to] the best of what they did and increase them from His bounty. And Allah gives provision to whom He wills without account
+But those who disbelieved - their deeds are like a mirage in a lowland which a thirsty one thinks is water until, when he comes to it, he finds it is nothing but finds Allah before Him, and He will pay him in full his due; and Allah is swift in account
+Or [they are] like darknesses within an unfathomable sea which is covered by waves, upon which are waves, over which are clouds - darknesses, some of them upon others. When one puts out his hand [therein], he can hardly see it. And he to whom Allah has not granted light - for him there is no light
+Do you not see that Allah is exalted by whomever is within the heavens and the earth and [by] the birds with wings spread [in flight]? Each [of them] has known his [means of] prayer and exalting [Him], and Allah is Knowing of what they do
+And to Allah belongs the dominion of the heavens and the earth, and to Allah is the destination
+Do you not see that Allah drives clouds? Then He brings them together, then He makes them into a mass, and you see the rain emerge from within it. And He sends down from the sky, mountains [of clouds] within which is hail, and He strikes with it whom He wills and averts it from whom He wills. The flash of its lightening almost takes away the eyesight
+Allah alternates the night and the day. Indeed in that is a lesson for those who have vision
+Allah has created every [living] creature from water. And of them are those that move on their bellies, and of them are those that walk on two legs, and of them are those that walk on four. Allah creates what He wills. Indeed, Allah is over all things competent
+We have certainly sent down distinct verses. And Allah guides whom He wills to a straight path
+But the hypocrites say, "We have believed in Allah and in the Messenger, and we obey"; then a party of them turns away after that. And those are not believers
+And when they are called to [the words of] Allah and His Messenger to judge between them, at once a party of them turns aside [in refusal]
+But if the right is theirs, they come to him in prompt obedience
+Is there disease in their hearts? Or have they doubted? Or do they fear that Allah will be unjust to them, or His Messenger? Rather, it is they who are the wrongdoers
+The only statement of the [true] believers when they are called to Allah and His Messenger to judge between them is that they say, "We hear and we obey." And those are the successful
+And whoever obeys Allah and His Messenger and fears Allah and is conscious of Him - it is those who are the attainers
+And they swear by Allah their strongest oaths that if you ordered them, they would go forth [in Allah 's cause]. Say, "Do not swear. [Such] obedience is known. Indeed, Allah is Acquainted with that which you do
+Say, "Obey Allah and obey the Messenger; but if you turn away - then upon him is only that [duty] with which he has been charged, and upon you is that with which you have been charged. And if you obey him, you will be [rightly] guided. And there is not upon the Messenger except the [responsibility for] clear notification
+Allah has promised those who have believed among you and done righteous deeds that He will surely grant them succession [to authority] upon the earth just as He granted it to those before them and that He will surely establish for them [therein] their religion which He has preferred for them and that He will surely substitute for them, after their fear, security, [for] they worship Me, not associating anything with Me. But whoever disbelieves after that - then those are the defiantly disobedient
+And establish prayer and give zakah and obey the Messenger - that you may receive mercy
+Never think that the disbelievers are causing failure [to Allah] upon the earth. Their refuge will be the Fire - and how wretched the destination
+O you who have believed, let those whom your right hands possess and those who have not [yet] reached puberty among you ask permission of you [before entering] at three times: before the dawn prayer and when you put aside your clothing [for rest] at noon and after the night prayer. [These are] three times of privacy for you. There is no blame upon you nor upon them beyond these [periods], for they continually circulate among you - some of you, among others. Thus does Allah make clear to you the verses; and Allah is Knowing and Wise
+And when the children among you reach puberty, let them ask permission [at all times] as those before them have done. Thus does Allah make clear to you His verses; and Allah is Knowing and Wise
+And women of post-menstrual age who have no desire for marriage - there is no blame upon them for putting aside their outer garments [but] not displaying adornment. But to modestly refrain [from that] is better for them. And Allah is Hearing and Knowing
+There is not upon the blind [any] constraint nor upon the lame constraint nor upon the ill constraint nor upon yourselves when you eat from your [own] houses or the houses of your fathers or the houses of your mothers or the houses of your brothers or the houses of your sisters or the houses of your father's brothers or the houses of your father's sisters or the houses of your mother's brothers or the houses of your mother's sisters or [from houses] whose keys you possess or [from the house] of your friend. There is no blame upon you whether you eat together or separately. But when you enter houses, give greetings of peace upon each other - a greeting from Allah, blessed and good. Thus does Allah make clear to you the verses [of ordinance] that you may understand
+The believers are only those who believe in Allah and His Messenger and, when they are [meeting] with him for a matter of common interest, do not depart until they have asked his permission. Indeed, those who ask your permission, [O Muhammad] - those are the ones who believe in Allah and His Messenger. So when they ask your permission for something of their affairs, then give permission to whom you will among them and ask forgiveness for them of Allah. Indeed, Allah is Forgiving and Merciful
+Do not make [your] calling of the Messenger among yourselves as the call of one of you to another. Already Allah knows those of you who slip away, concealed by others. So let those beware who dissent from the Prophet's order, lest fitnah strike them or a painful punishment
+Unquestionably, to Allah belongs whatever is in the heavens and earth. Already He knows that upon which you [stand] and [knows] the Day when they will be returned to Him and He will inform them of what they have done. And Allah is Knowing of all things
+```n

@@ -1,0 +1,356 @@
+# HİCR الحجر ( Kayalık Bölge ) 
+---
+- Sure Adı : HİCR
+- Sure No : 15
+- Sure Tipi : meccan
+- Sure Ayet Sayısı : 99
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+ELİF! LAM! RA! Bunlar, o Kitap’ın[1*]; açıklayan Kur’ân’ın[2*] ayetleridir.
+Ayetleri görmezlikten gelenler (kafirler), zaman zaman “Keşke biz de tam teslim olanlardan (müslümanlardan) olsak” diye çok arzu ederler[*].
+Bırak onları yesin-içsin hayatın tadını çıkarsınlar, beklentileri kendilerini oyalasın; nasıl olsa yakında öğrenecekler.
+Biz hiç bir kenti belli bir kitabı olmadan etkisizleştirmedik.
+Bir toplum (ümmet) kendine biçilen süreyi (ecelini) ne kısaltabilir ne de uzatabilir.
+Dediler ki “Ey kendisine Zikir (Kitap) indirilen kişi! Sen tamamen cinlerin etkisindesin.
+Söylediğin doğruysa bize melekleri getirsene?”
+Biz melekleri sadece gerçek[*] bir iş sebebiyle göndeririz. Gönderdikten sonra da onlara artık süre tanınmaz.
+O Zikri (Kitabı) sana Biz indirdik Biz. Onu koruyacak olan da Biziz.
+Senden önceki insan topluluklarına da elçiler gönderdik.
+Onlara ne zaman bir elçi gelse mutlaka hafife alırlar.
+Hep böyle olur. Onu (Zikri) suçluların kalplerine[*] işleriz.
+Bunlar ona inanmazlar; hâlbuki öncekilere uygulanan kanun açıktır.
+Üzerlerine gökten bir kapı açsak, onlar da oradan yukarı çıksalar,
+(Yine de) Şöyle derler: “Kesin gözlerimiz döndürülmüş; biz büyülenmiş bir topluluğuz.”
+(Birinci kat) Gökte[*] yıldızlar (burçlar) oluşturduk. Seyredenler için onları süsledik.
+(Birinci kat) Göğü[*], taşlanmış şeytanların hepsinden koruduk.
+Ancak kulak hırsızlığı(dinleme) yapan olabilir, onu da hemen parlak bir ateş parçası takip eder.
+Yeri uzattık, içine oturaklı dağları yerleştirdik. Orada her bitkiyi dengeli olarak bitirdik.
+Yeryüzünde sizin için de rızkı size ait olmayan kimseler (akıllı varlıklar) için de yaşam alanları oluşturduk.
+Hiç bir şey yoktur ki kaynakları bizim katımızda olmasın. Onu ancak belli bir ölçüye göre göndeririz.
+Rüzgârları aşı yapma göreviyle göndeririz. Gökten su indirir, onunla su ihtiyacınızı karşılarız. Onun kaynağı sizin elinizde değildir.
+Biziz hayat veren de öldüren de; biz! Ve her şeye biz mirasçı olacağız.
+Muhakkak ki biz, sizden yapması gerekenleri yapmış olanları da yapması gerekenleri yapmayıp erteleyenleri de biliyoruz.
+Senin Rabbin[*] onların hepsini kıyamet günü bir araya getirecektir. O bilir, doğru kararlar verir.
+Biz o insanı[*] kurumuş, yıllanıp kokuşmuş kara balçıktan yarattık.
+Cânnı[*] da daha önce zehirli ateşten yaratmıştık.
+Bir gün Rabbin meleklere demişti ki “Ben  kurumuş, yıllanıp kokuşmuş kara balçıktan bir beşer (deri yapısı farklı bir canlı)  yaratacağım.
+Onu tamamlayıp içine ruhumdan üflediğimde ona secdeye kapanın.”
+Sonra bütün melekler birlikte (Âdem’e) secde ettiler..
+Onlardan bir tek İblis ayrıldı; secde edenlere katılmamakta direndi.
+Allah dedi ki “Bak İblis! Sana ne oldu da secde edenlere katılmadın?”
+”Kurumuş, yıllanıp kokuşmuş kara balçıktan  yarattığın beşere secde edemem” dedi.
+Allah dedi ki “Çık oradan! Sen taşlanacaksın.
+Hesap verme gününe kadar hep dışlanacaksın (lanetlisin).”
+(İblis) Dedi ki “Rabbim! Bunların tekrar dirilecekleri güne kadar bana süre[*] ver.”
+(Allah) Dedi ki “Sen kendisine süre verilenlerdensin.
+Belli günün vakti gelinceye kadar.”
+İblis dedi ki “Rabbim! Beni aşırılığa sevk etmene karşılık[1] ben de bunlara dünyadakileri süsleyeceğim ve hepsini aşırılığa sevk edeceğim.
+Sana yürekten bağlı olanları değil.”
+Allah dedi ki “Bu, bana varan doğru yoldur.
+Kullarımın üzerinde senin bir üstünlüğün (gücün, yetkin)[*] yoktur. Yanlışa saplanıp sana uyanlar başka.”
+Cehennem bunların hepsinin buluşacağı yerdir.
+Cehennem’in yedi kapısı vardır. Her kapıdan onların bir bölüğü girer.
+Allah’tan çekinerek korunmuş olanlar[1] ise bahçelerde ve pınar başlarında olurlar.
+“Oralara esenlik ve güvenle girin” denmiştir.
+Biz göğüslerindeki kötü bağlantıları[*] söküp atmış oluruz. Kardeşler halinde karşılıklı sedirler üzerindedirler.
+Onlar orada yorgunluk nedir bilmezler. Oradan çıkarılacak da değildirler.
+Kullarıma bildir ki ben, günahları örterim, ikramım da boldur.
+Azabım da şiddetlidir, can yakan bir azaptır.
+Onlara İbrahim’in konuklarından da haber ver.
+Bir gün İbrahim’in yanına girmişler ve “Selâm(esenlik ve güvenlik dileriz)” demişlerdi. İbrahim: “Biz sizden kuşku duyuyoruz” dedi.
+“Kuşkulanma” dediler. “Sana bilgin bir oğlun olacağını müjdelemeye geldik.”
+“Yaşlılık üzerime iyice çökmüşken mi müjde getiriyorsunuz? Neyin müjdesini veriyorsunuz?”
+Dediler ki “Sana bir gerçeği müjdeliyoruz. Sakın umudunu kesenlerden olma.”
+Dedi ki “Sapkınlar dışında kim Rabbinin ikramından umudunu keser?”
+İbrahim dedi ki “Ey elçiler! Asıl işiniz nedir?
+Dediler ki “Aslında biz, günaha batmış bir topluluğa gönderildik.
+Ama Lut’un ailesi onlardan değildir; ailesinin bütün fertlerini kurtaracağız.
+Eşi hariç. Onun davranışlarını ölçtük, küller altında kalacaklardan olduğu ortaya çıktı.”
+Elçiler Lut ailesine vardılar,
+Lut dedi ki “Sizler tanınmamış bir topluluksunuz.”
+Dediler ki “Hayır, sana bunların inanmak istemedikleri şeyi getirdik.
+Sana bunların hak ettiği şeyi getirdik. Bizler dosdoğru kimseleriz.
+Gecenin bir bölümünde aileni yola çıkar; sen de arkalarından git. İçinizden kimse geriye dönüp bakmasın. Sizden istenen yere kadar geçip gidin.”
+Şu kesin kararı ona bildirdik: “Sabaha girdiklerinde bunların kökü kesilmiş olacaktır.”
+Bundan önce şehir halkı, bir birlerine müjdeler vererek gelmişlerdi.
+Lut şöyle demişti: “Bunlar benim konuklarım; onların yanında beni utandırmayın.
+Allah’tan çekinin de beni rezil etmeyin.
+Onlar şu karşılığı vermişlerdi: “Sana kimsenin işine karışma dememiş miydik?”
+Lut da şöyle demişti: “Eğer yaklaşmak istiyorsanız, işte kızlarım, (onlarla evlenin[*1].)
+(Muhammed!) Senin hayatına yemin ederim ki onlar sarhoşlukları içinde bocalar halde duruyorlardı.
+Gün doğarken dehşet bir sesle sarsıldılar.
+Oranın altını üstüne getirdik. Üzerlerine pişmiş balçıktan taşlar yağdırdık.
+İnceleme yapmak isteyenler için[*] bunda kesin belgeler (ayetler) vardır.
+Orası bugün bir yol üzerinde durmaktadırlar.
+Bunda inananlar için kesin bir belge (ayet) vardır.
+Bir başka gerçek de Eyke ahalisinin zalimlikleridir[*].
+Onlara da hak ettikleri cezayı verdik. Bu ikisi aynı ana yol üzerinde açıkça görülmektedir.
+Hicr ahalisi de gelen elçileri yalancı saymışlardı.
+Hâlbuki onlara mucizeler (ayetler) vermiştik ama yüz çevirmişlerdi.
+Dağları yontar, güven duydukları evler haline getirirlerdi.
+Onlar da sabaha girerken dehşet bir sesle sarsılmışlardı.
+Kazandıkları şeyler hiçbir işlerine yaramamıştı.
+Gökleri, yeri ve bu ikisi arasında olanları başka şekilde değil, gerçek varlıklar olarak yarattık. Kıyamet saati nasıl olsa gelecektir. Öyleyse sen de bunlara yeni bir sayfa aç, hiç bir şey olmamış gibi güzel davran.
+Yaratan ve her şeyi bilen Rabbindir.
+Sana o mesânîden[*1] (birbirini açıklayan âyetlerden seçtiğimiz) yedi (âyeti)[*2] ve bu yüce Kur’ân’ı verdik.
+Onlardan kimine verdiğimiz kat kat nimetlere gözlerini dikme ve onlara karşı üzülme. Sen inanıp güvenenlere kol kanat ol.
+De ki “Ben her şeyi açıkça ortaya koyan bir uyarıcıyım.”
+Nitekim (dinlerini) bölüp ayıranlara da (cezayı) indireceğiz.
+Bu Kur’ân’ı parça parça edenlere.
+Rabbine yemin olsun ki hepsini sorguya çekeceğiz,
+Yaptıkları bu işlerden dolayı.
+“Sana ne emredildiyse başlarını çatlatırcasına onlara bildir. Müşriklere de aldırma.
+Seni inceden inceye alaya alanlara karşı bizim desteğimiz yeterli olur.
+Onlar, Allah ile birlikte başka bir ilah oluşturmuşlardır; nasıl olsa yakında öğrenecekler.
+İyi biliyoruz ki onların sözlerinden dolayı için daralıyor.
+Her şeyi güzel yaptığından dolayı Rabbine ibadet et ve secde edenlerden ol.
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[1*] </strong>Levh-i Mahfuz’daki ana kitabın.
+
+	<strong>[2*]</strong> Kur’ân kelimesi hem son Kitabın isimlerinden biri hem de o kitaptaki hükümlere ulaşmayı sağlayan ayet kümeleri anlamına gelir.
+<strong>[*]</strong> İnanıp güvenmeyen kimsenin(kafirlerin) dünya hayatı ne kadar iyi de olsa zaman zaman iç huzursuzlukları yaşar. Bu sıkıntılar, onun eksikliklerini ve hatalarını fark etmesi için Allah tarafından kendisine verilen ilhamdır. Bunlardan kimi sıkıntısını gidermek için kendisini düzeltme yolunu seçerken kimisi de çareyi daha da azgınlaşmakta bulur. Bu sıkıntının kafirler üzerindeki etkisi <a href="http://suleymaniyevakfimeali.com/Meal/Enam.htm#125">En’am 6/125</a>’te ve Allah’ın bütün insanlara ilham yoluyla uyarılarda bulunduğu bilgisi Şems 91/8’dedir. Kişinin göğsünde (kalbinde) olan ruhtur. Kur’an (bir konuda Allah’ın verdiği hükmü içeren ilgili ayetler kümesi) kişinin göğsünde olana şifadır. Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Yunus.htm#57">Yunus 10/57</a>.
+<strong>[*]</strong> Örneğin Lut Kavminin yok edilmesi işi için gönderilen melekler. O melekler hem gerçek bir iş sebebiyle geldiler, hem de o iş gerçekleri açıkça ortaya çıkarmış oldu. Arapçada EL HAKKI (الحَقِّ) kelimesinin bu çift anlamlı özelliği ne yazık ki Türkçe bakımından mümkün değildir. Örneğin Kur’an-ı Kerim hem bir gerçektir hem de gerçekleri gösterir. Bu nedenle çeviri genelinde EL HAKKI geçen ayetlere parantez veya dipnot ile açıklama getirme ihtiyacı oluşmuştur.
+<strong>[*]</strong> Aslında o zikirin(kitabın) doğru olduğunu içten(kalpten) bilirler.
+<strong>[*] </strong>Birinci kat gök. Bu gök şu an için bizim bildiğimiz evrendir. Kuran, bu evrenden(gökten) hariç 6 tane daha göğün üst üste inşa edildiğini bildirmektedir.
+<strong>[*]</strong>&nbsp;Birinci kat gök, bizim gördüğümüz göktür. Onun dışında üst üste inşa edilmiş altı gök daha vardır. (Nuh 71/15-16)
+
+	&nbsp;
+
+	&nbsp;
+[*] Sahibin
+[*] Adem’i.
+<strong>[*] </strong>Cinlerin atasını
+[*]&nbsp;&nbsp;Bu ayetten Meleklerin de ömürlü varlıklar olduğu ancak bazılarına kıyamet gününe kadar yaşama hakkı tanındığı anlaşılıyor.
+<strong>[*]</strong> Bu ayetten anlaşılacağı üzere İblis, kendi suçunu Allah’a atmaktadır. Günümüz kadercilik anlayışının temelinde de aynı mantık gözlemlenebilir. Kaderciler, her şeyin ezelden belirlenmiş olduğu kanaatiyle kendi hatalarını Allah’a mal etme eğilimi gösterirler.
+<strong>[*]</strong> Bkz. <a href="http://suleymaniyevakfimeali.com/Meal/İbrahim.htm#22">İbrahim 14/22</a>
+<strong>[*]</strong> Müttekiler:Allah’tan çekinerek korunanlar,kendini(fıtratını) bozmayanlar. Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#2">Bakara 2/2</a>
+<strong>[*]&nbsp;</strong>Bakınız <a href="http://suleymaniyevakfimeali.com/Meal/Araf.htm#43">Araf 7/43</a>
+[*1] &nbsp;Allah'ın Elçisinin evlilik dışı ilişkiyi onaylaması mümkün olmadığından burada (onlarla evlenin) sözünün gizli emir olarak yer alması zorunludur. Cümleyi yarım bırakmış olması, halkın Lut aleyhisselamı çok bunalttığını gösterir. Bu âyet, din farkının evlenmeyi haram kılmadığını da gösterir. Çünkü Tahrim Suresi 10. âyete göre Lut'un karısı kafirdi ama onun eşi olmaya devam ediyordu. 
+
+	Müslüman kadının müslüman olmayan erkekle evlenmesini caiz görmeyenler şu âyete dayanırlar: "İman edene kadar, müşrik kadınlarla evlenmeyin. İman etmiş esir kadın, müşrik kadından elbette iyidir; isterse sizi çok etkilemiş olsun. İman edene kadar, müşrik erkeklere kız vermeyin. İman etmiş esir erkek, müşrikten elbette daha iyidir; isterse sizi çok etkilemiş olsun. Onlar sizi ateşe çağırırlar, Allah ise kendi izniyle Cennet’e ve günahlardan arınmaya çağırır. Allah âyetlerini insanlara açıklar ki akıllarını başlarına toplasınlar." (<a href="http://suleymaniyevakfimeali.com/Meal/Bakara.htm#221">Bakara 2/221</a>)
+
+	Âyette geçen “daha iyi” ifadeleri, böyle bir evliliğin tavsiye edilmediğini gösterir ama haram kılmaz. Zaten Lut kavminin tamamının kafir olması, kızlarının kafirden başkasıyla evlenmesini imkansız kılar. Nebîmiz’in kızı Zeyneb’in eşi Ebü’l-Âs b. er-Rebî de hicretin 6. yılına kadar müslüman olmamıştı. Nebîmizin, din farkından dolayı kimseyi eşinden ayırmamış olması da bunu destekler..&nbsp;
+
+	&nbsp;
+[*] لِّلْمُتَوَسِّمِينَ (li el mutevessimîne) : Sözlüklere bakınca "inceleme yapacaklar için" anlamı çıkıyor.&nbsp;
+<strong>[*]</strong> Yanlış yapmak, yanlışlar içinde olmak
+&nbsp;Onlara da hak ettikleri cezayı verdik. Bu ikisi aynı ana yol üzerinde açıkça görülmektedir.
+[*1] Mesânî (مثَانِي),&nbsp; ikişerler demektir.&nbsp; Ayetler, muhkemler yani kısa ve özlü hükümler içerenler ve onların benzeri olup onları açıklayan müteşâbihlerden oluşur. Aralarında ikili ilişki vardır. İşte bu ilişkiyi belirten kelime mesânî’dir.
+
+	[*2] Fatiha Suresi’ni. Nebî’mizin şöyle dediği rivayet edilmiştir: “El-hamdu lillah (Fatiha Suresi) bana verilmiş yedi mesânî ve yüce Kur’ân’dır. (Buhârî, Tefsir, 1; Nesâî, İftitah, 26.)&nbsp; Kur'ân’ın girişinde yer alan Fatiha’nın mesânî olması, Kur'ân’ın özeti olduğunu gösterir. Kur'ân’ın tamamı Fâtihâ’nın açıklamasıdır.
+```
+---
+## الحجر
+```read
+الٓرۚ تِلۡكَ ءَايَٰتُ ٱلۡكِتَٰبِ وَقُرۡءَانٖ مُّبِينٖ
+رُّبَمَا يَوَدُّ ٱلَّذِينَ كَفَرُواْ لَوۡ كَانُواْ مُسۡلِمِينَ
+ذَرۡهُمۡ يَأۡكُلُواْ وَيَتَمَتَّعُواْ وَيُلۡهِهِمُ ٱلۡأَمَلُۖ فَسَوۡفَ يَعۡلَمُونَ
+وَمَآ أَهۡلَكۡنَا مِن قَرۡيَةٍ إِلَّا وَلَهَا كِتَابٞ مَّعۡلُومٞ
+مَّا تَسۡبِقُ مِنۡ أُمَّةٍ أَجَلَهَا وَمَا يَسۡتَـٔۡخِرُونَ
+وَقَالُواْ يَـٰٓأَيُّهَا ٱلَّذِي نُزِّلَ عَلَيۡهِ ٱلذِّكۡرُ إِنَّكَ لَمَجۡنُونٞ
+لَّوۡمَا تَأۡتِينَا بِٱلۡمَلَـٰٓئِكَةِ إِن كُنتَ مِنَ ٱلصَّـٰدِقِينَ
+مَا نُنَزِّلُ ٱلۡمَلَـٰٓئِكَةَ إِلَّا بِٱلۡحَقِّ وَمَا كَانُوٓاْ إِذٗا مُّنظَرِينَ
+إِنَّا نَحۡنُ نَزَّلۡنَا ٱلذِّكۡرَ وَإِنَّا لَهُۥ لَحَٰفِظُونَ
+وَلَقَدۡ أَرۡسَلۡنَا مِن قَبۡلِكَ فِي شِيَعِ ٱلۡأَوَّلِينَ
+وَمَا يَأۡتِيهِم مِّن رَّسُولٍ إِلَّا كَانُواْ بِهِۦ يَسۡتَهۡزِءُونَ
+كَذَٰلِكَ نَسۡلُكُهُۥ فِي قُلُوبِ ٱلۡمُجۡرِمِينَ
+لَا يُؤۡمِنُونَ بِهِۦ وَقَدۡ خَلَتۡ سُنَّةُ ٱلۡأَوَّلِينَ
+وَلَوۡ فَتَحۡنَا عَلَيۡهِم بَابٗا مِّنَ ٱلسَّمَآءِ فَظَلُّواْ فِيهِ يَعۡرُجُونَ
+لَقَالُوٓاْ إِنَّمَا سُكِّرَتۡ أَبۡصَٰرُنَا بَلۡ نَحۡنُ قَوۡمٞ مَّسۡحُورُونَ
+وَلَقَدۡ جَعَلۡنَا فِي ٱلسَّمَآءِ بُرُوجٗا وَزَيَّنَّـٰهَا لِلنَّـٰظِرِينَ
+وَحَفِظۡنَٰهَا مِن كُلِّ شَيۡطَٰنٖ رَّجِيمٍ
+إِلَّا مَنِ ٱسۡتَرَقَ ٱلسَّمۡعَ فَأَتۡبَعَهُۥ شِهَابٞ مُّبِينٞ
+وَٱلۡأَرۡضَ مَدَدۡنَٰهَا وَأَلۡقَيۡنَا فِيهَا رَوَٰسِيَ وَأَنۢبَتۡنَا فِيهَا مِن كُلِّ شَيۡءٖ مَّوۡزُونٖ
+وَجَعَلۡنَا لَكُمۡ فِيهَا مَعَٰيِشَ وَمَن لَّسۡتُمۡ لَهُۥ بِرَٰزِقِينَ
+وَإِن مِّن شَيۡءٍ إِلَّا عِندَنَا خَزَآئِنُهُۥ وَمَا نُنَزِّلُهُۥٓ إِلَّا بِقَدَرٖ مَّعۡلُومٖ
+وَأَرۡسَلۡنَا ٱلرِّيَٰحَ لَوَٰقِحَ فَأَنزَلۡنَا مِنَ ٱلسَّمَآءِ مَآءٗ فَأَسۡقَيۡنَٰكُمُوهُ وَمَآ أَنتُمۡ لَهُۥ بِخَٰزِنِينَ
+وَإِنَّا لَنَحۡنُ نُحۡيِۦ وَنُمِيتُ وَنَحۡنُ ٱلۡوَٰرِثُونَ
+وَلَقَدۡ عَلِمۡنَا ٱلۡمُسۡتَقۡدِمِينَ مِنكُمۡ وَلَقَدۡ عَلِمۡنَا ٱلۡمُسۡتَـٔۡخِرِينَ
+وَإِنَّ رَبَّكَ هُوَ يَحۡشُرُهُمۡۚ إِنَّهُۥ حَكِيمٌ عَلِيمٞ
+وَلَقَدۡ خَلَقۡنَا ٱلۡإِنسَٰنَ مِن صَلۡصَٰلٖ مِّنۡ حَمَإٖ مَّسۡنُونٖ
+وَٱلۡجَآنَّ خَلَقۡنَٰهُ مِن قَبۡلُ مِن نَّارِ ٱلسَّمُومِ
+وَإِذۡ قَالَ رَبُّكَ لِلۡمَلَـٰٓئِكَةِ إِنِّي خَٰلِقُۢ بَشَرٗا مِّن صَلۡصَٰلٖ مِّنۡ حَمَإٖ مَّسۡنُونٖ
+فَإِذَا سَوَّيۡتُهُۥ وَنَفَخۡتُ فِيهِ مِن رُّوحِي فَقَعُواْ لَهُۥ سَٰجِدِينَ
+فَسَجَدَ ٱلۡمَلَـٰٓئِكَةُ كُلُّهُمۡ أَجۡمَعُونَ
+إِلَّآ إِبۡلِيسَ أَبَىٰٓ أَن يَكُونَ مَعَ ٱلسَّـٰجِدِينَ
+قَالَ يَـٰٓإِبۡلِيسُ مَا لَكَ أَلَّا تَكُونَ مَعَ ٱلسَّـٰجِدِينَ
+قَالَ لَمۡ أَكُن لِّأَسۡجُدَ لِبَشَرٍ خَلَقۡتَهُۥ مِن صَلۡصَٰلٖ مِّنۡ حَمَإٖ مَّسۡنُونٖ
+قَالَ فَٱخۡرُجۡ مِنۡهَا فَإِنَّكَ رَجِيمٞ
+وَإِنَّ عَلَيۡكَ ٱللَّعۡنَةَ إِلَىٰ يَوۡمِ ٱلدِّينِ
+قَالَ رَبِّ فَأَنظِرۡنِيٓ إِلَىٰ يَوۡمِ يُبۡعَثُونَ
+قَالَ فَإِنَّكَ مِنَ ٱلۡمُنظَرِينَ
+إِلَىٰ يَوۡمِ ٱلۡوَقۡتِ ٱلۡمَعۡلُومِ
+قَالَ رَبِّ بِمَآ أَغۡوَيۡتَنِي لَأُزَيِّنَنَّ لَهُمۡ فِي ٱلۡأَرۡضِ وَلَأُغۡوِيَنَّهُمۡ أَجۡمَعِينَ
+إِلَّا عِبَادَكَ مِنۡهُمُ ٱلۡمُخۡلَصِينَ
+قَالَ هَٰذَا صِرَٰطٌ عَلَيَّ مُسۡتَقِيمٌ
+إِنَّ عِبَادِي لَيۡسَ لَكَ عَلَيۡهِمۡ سُلۡطَٰنٌ إِلَّا مَنِ ٱتَّبَعَكَ مِنَ ٱلۡغَاوِينَ
+وَإِنَّ جَهَنَّمَ لَمَوۡعِدُهُمۡ أَجۡمَعِينَ
+لَهَا سَبۡعَةُ أَبۡوَٰبٖ لِّكُلِّ بَابٖ مِّنۡهُمۡ جُزۡءٞ مَّقۡسُومٌ
+إِنَّ ٱلۡمُتَّقِينَ فِي جَنَّـٰتٖ وَعُيُونٍ
+ٱدۡخُلُوهَا بِسَلَٰمٍ ءَامِنِينَ
+وَنَزَعۡنَا مَا فِي صُدُورِهِم مِّنۡ غِلٍّ إِخۡوَٰنًا عَلَىٰ سُرُرٖ مُّتَقَٰبِلِينَ
+لَا يَمَسُّهُمۡ فِيهَا نَصَبٞ وَمَا هُم مِّنۡهَا بِمُخۡرَجِينَ
+۞نَبِّئۡ عِبَادِيٓ أَنِّيٓ أَنَا ٱلۡغَفُورُ ٱلرَّحِيمُ
+وَأَنَّ عَذَابِي هُوَ ٱلۡعَذَابُ ٱلۡأَلِيمُ
+وَنَبِّئۡهُمۡ عَن ضَيۡفِ إِبۡرَٰهِيمَ
+إِذۡ دَخَلُواْ عَلَيۡهِ فَقَالُواْ سَلَٰمٗا قَالَ إِنَّا مِنكُمۡ وَجِلُونَ
+قَالُواْ لَا تَوۡجَلۡ إِنَّا نُبَشِّرُكَ بِغُلَٰمٍ عَلِيمٖ
+قَالَ أَبَشَّرۡتُمُونِي عَلَىٰٓ أَن مَّسَّنِيَ ٱلۡكِبَرُ فَبِمَ تُبَشِّرُونَ
+قَالُواْ بَشَّرۡنَٰكَ بِٱلۡحَقِّ فَلَا تَكُن مِّنَ ٱلۡقَٰنِطِينَ
+قَالَ وَمَن يَقۡنَطُ مِن رَّحۡمَةِ رَبِّهِۦٓ إِلَّا ٱلضَّآلُّونَ
+قَالَ فَمَا خَطۡبُكُمۡ أَيُّهَا ٱلۡمُرۡسَلُونَ
+قَالُوٓاْ إِنَّآ أُرۡسِلۡنَآ إِلَىٰ قَوۡمٖ مُّجۡرِمِينَ
+إِلَّآ ءَالَ لُوطٍ إِنَّا لَمُنَجُّوهُمۡ أَجۡمَعِينَ
+إِلَّا ٱمۡرَأَتَهُۥ قَدَّرۡنَآ إِنَّهَا لَمِنَ ٱلۡغَٰبِرِينَ
+فَلَمَّا جَآءَ ءَالَ لُوطٍ ٱلۡمُرۡسَلُونَ
+قَالَ إِنَّكُمۡ قَوۡمٞ مُّنكَرُونَ
+قَالُواْ بَلۡ جِئۡنَٰكَ بِمَا كَانُواْ فِيهِ يَمۡتَرُونَ
+وَأَتَيۡنَٰكَ بِٱلۡحَقِّ وَإِنَّا لَصَٰدِقُونَ
+فَأَسۡرِ بِأَهۡلِكَ بِقِطۡعٖ مِّنَ ٱلَّيۡلِ وَٱتَّبِعۡ أَدۡبَٰرَهُمۡ وَلَا يَلۡتَفِتۡ مِنكُمۡ أَحَدٞ وَٱمۡضُواْ حَيۡثُ تُؤۡمَرُونَ
+وَقَضَيۡنَآ إِلَيۡهِ ذَٰلِكَ ٱلۡأَمۡرَ أَنَّ دَابِرَ هَـٰٓؤُلَآءِ مَقۡطُوعٞ مُّصۡبِحِينَ
+وَجَآءَ أَهۡلُ ٱلۡمَدِينَةِ يَسۡتَبۡشِرُونَ
+قَالَ إِنَّ هَـٰٓؤُلَآءِ ضَيۡفِي فَلَا تَفۡضَحُونِ
+وَٱتَّقُواْ ٱللَّهَ وَلَا تُخۡزُونِ
+قَالُوٓاْ أَوَلَمۡ نَنۡهَكَ عَنِ ٱلۡعَٰلَمِينَ
+قَالَ هَـٰٓؤُلَآءِ بَنَاتِيٓ إِن كُنتُمۡ فَٰعِلِينَ
+لَعَمۡرُكَ إِنَّهُمۡ لَفِي سَكۡرَتِهِمۡ يَعۡمَهُونَ
+فَأَخَذَتۡهُمُ ٱلصَّيۡحَةُ مُشۡرِقِينَ
+فَجَعَلۡنَا عَٰلِيَهَا سَافِلَهَا وَأَمۡطَرۡنَا عَلَيۡهِمۡ حِجَارَةٗ مِّن سِجِّيلٍ
+إِنَّ فِي ذَٰلِكَ لَأٓيَٰتٖ لِّلۡمُتَوَسِّمِينَ
+وَإِنَّهَا لَبِسَبِيلٖ مُّقِيمٍ
+إِنَّ فِي ذَٰلِكَ لَأٓيَةٗ لِّلۡمُؤۡمِنِينَ
+وَإِن كَانَ أَصۡحَٰبُ ٱلۡأَيۡكَةِ لَظَٰلِمِينَ
+فَٱنتَقَمۡنَا مِنۡهُمۡ وَإِنَّهُمَا لَبِإِمَامٖ مُّبِينٖ
+وَلَقَدۡ كَذَّبَ أَصۡحَٰبُ ٱلۡحِجۡرِ ٱلۡمُرۡسَلِينَ
+وَءَاتَيۡنَٰهُمۡ ءَايَٰتِنَا فَكَانُواْ عَنۡهَا مُعۡرِضِينَ
+وَكَانُواْ يَنۡحِتُونَ مِنَ ٱلۡجِبَالِ بُيُوتًا ءَامِنِينَ
+فَأَخَذَتۡهُمُ ٱلصَّيۡحَةُ مُصۡبِحِينَ
+فَمَآ أَغۡنَىٰ عَنۡهُم مَّا كَانُواْ يَكۡسِبُونَ
+وَمَا خَلَقۡنَا ٱلسَّمَٰوَٰتِ وَٱلۡأَرۡضَ وَمَا بَيۡنَهُمَآ إِلَّا بِٱلۡحَقِّۗ وَإِنَّ ٱلسَّاعَةَ لَأٓتِيَةٞۖ فَٱصۡفَحِ ٱلصَّفۡحَ ٱلۡجَمِيلَ
+إِنَّ رَبَّكَ هُوَ ٱلۡخَلَّـٰقُ ٱلۡعَلِيمُ
+وَلَقَدۡ ءَاتَيۡنَٰكَ سَبۡعٗا مِّنَ ٱلۡمَثَانِي وَٱلۡقُرۡءَانَ ٱلۡعَظِيمَ
+لَا تَمُدَّنَّ عَيۡنَيۡكَ إِلَىٰ مَا مَتَّعۡنَا بِهِۦٓ أَزۡوَٰجٗا مِّنۡهُمۡ وَلَا تَحۡزَنۡ عَلَيۡهِمۡ وَٱخۡفِضۡ جَنَاحَكَ لِلۡمُؤۡمِنِينَ
+وَقُلۡ إِنِّيٓ أَنَا ٱلنَّذِيرُ ٱلۡمُبِينُ
+كَمَآ أَنزَلۡنَا عَلَى ٱلۡمُقۡتَسِمِينَ
+ٱلَّذِينَ جَعَلُواْ ٱلۡقُرۡءَانَ عِضِينَ
+فَوَرَبِّكَ لَنَسۡـَٔلَنَّهُمۡ أَجۡمَعِينَ
+عَمَّا كَانُواْ يَعۡمَلُونَ
+فَٱصۡدَعۡ بِمَا تُؤۡمَرُ وَأَعۡرِضۡ عَنِ ٱلۡمُشۡرِكِينَ
+إِنَّا كَفَيۡنَٰكَ ٱلۡمُسۡتَهۡزِءِينَ
+ٱلَّذِينَ يَجۡعَلُونَ مَعَ ٱللَّهِ إِلَٰهًا ءَاخَرَۚ فَسَوۡفَ يَعۡلَمُونَ
+وَلَقَدۡ نَعۡلَمُ أَنَّكَ يَضِيقُ صَدۡرُكَ بِمَا يَقُولُونَ
+فَسَبِّحۡ بِحَمۡدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ
+وَٱعۡبُدۡ رَبَّكَ حَتَّىٰ يَأۡتِيَكَ ٱلۡيَقِينُ
+```
+---
+## Al-Hijr
+```read
+Alif, Lam, Ra. These are the verses of the Book and a clear Qur'an
+Perhaps those who disbelieve will wish that they had been Muslims
+Let them eat and enjoy themselves and be diverted by [false] hope, for they are going to know
+And We did not destroy any city but that for it was a known decree
+No nation will precede its term, nor will they remain thereafter
+And they say, "O you upon whom the message has been sent down, indeed you are mad
+Why do you not bring us the angels, if you should be among the truthful
+We do not send down the angels except with truth; and the disbelievers would not then be reprieved
+Indeed, it is We who sent down the Qur'an and indeed, We will be its guardian
+And We had certainly sent [messengers] before you, [O Muhammad], among the sects of the former peoples
+And no messenger would come to them except that they ridiculed him
+Thus do We insert denial into the hearts of the criminals
+They will not believe in it, while there has already occurred the precedent of the former peoples
+And [even] if We opened to them a gate from the heaven and they continued therein to ascend
+They would say, "Our eyes have only been dazzled. Rather, we are a people affected by magic
+And We have placed within the heaven great stars and have beautified it for the observers
+And We have protected it from every devil expelled [from the mercy of Allah]
+Except one who steals a hearing and is pursued by a clear burning flame
+And the earth - We have spread it and cast therein firmly set mountains and caused to grow therein [something] of every well-balanced thing
+And We have made for you therein means of living and [for] those for whom you are not providers
+And there is not a thing but that with Us are its depositories, and We do not send it down except according to a known measure
+And We have sent the fertilizing winds and sent down water from the sky and given you drink from it. And you are not its retainers
+And indeed, it is We who give life and cause death, and We are the Inheritor
+And We have already known the preceding [generations] among you, and We have already known the later [ones to come]
+And indeed, your Lord will gather them; indeed, He is Wise and Knowing
+And We did certainly create man out of clay from an altered black mud
+And the jinn We created before from scorching fire
+And [mention, O Muhammad], when your Lord said to the angels, "I will create a human being out of clay from an altered black mud
+And when I have proportioned him and breathed into him of My [created] soul, then fall down to him in prostration
+So the angels prostrated - all of them entirely
+Except Iblees, he refused to be with those who prostrated
+[Allah] said, O Iblees, what is [the matter] with you that you are not with those who prostrate
+He said, "Never would I prostrate to a human whom You created out of clay from an altered black mud
+[Allah] said, "Then get out of it, for indeed, you are expelled
+And indeed, upon you is the curse until the Day of Recompense
+He said, "My Lord, then reprieve me until the Day they are resurrected
+[Allah] said, "So indeed, you are of those reprieved
+Until the Day of the time well-known
+[Iblees] said, "My Lord, because You have put me in error, I will surely make [disobedience] attractive to them on earth, and I will mislead them all
+Except, among them, Your chosen servants
+[Allah] said, "This is a path [of return] to Me [that is] straight
+Indeed, My servants - no authority will you have over them, except those who follow you of the deviators
+And indeed, Hell is the promised place for them all
+It has seven gates; for every gate is of them a portion designated
+Indeed, the righteous will be within gardens and springs
+[Having been told], "Enter it in peace, safe [and secure]
+And We will remove whatever is in their breasts of resentment, [so they will be] brothers, on thrones facing each other
+No fatigue will touch them therein, nor from it will they [ever] be removed
+[O Muhammad], inform My servants that it is I who am the Forgiving, the Merciful
+And that it is My punishment which is the painful punishment
+And inform them about the guests of Abraham
+When they entered upon him and said, "Peace." [Abraham] said, "Indeed, we are fearful of you
+[The angels] said, "Fear not. Indeed, we give you good tidings of a learned boy
+He said, "Have you given me good tidings although old age has come upon me? Then of what [wonder] do you inform
+They said, "We have given you good tidings in truth, so do not be of the despairing
+He said, "And who despairs of the mercy of his Lord except for those astray
+[Abraham] said, "Then what is your business [here], O messengers
+They said, "Indeed, we have been sent to a people of criminals
+Except the family of Lot; indeed, we will save them all
+Except his wife." Allah decreed that she is of those who remain behind
+And when the messengers came to the family of Lot
+He said, "Indeed, you are people unknown
+They said, "But we have come to you with that about which they were disputing
+And we have come to you with truth, and indeed, we are truthful
+So set out with your family during a portion of the night and follow behind them and let not anyone among you look back and continue on to where you are commanded
+And We conveyed to him [the decree] of that matter: that those [sinners] would be eliminated by early morning
+And the people of the city came rejoicing
+[Lot] said, "Indeed, these are my guests, so do not shame me
+And fear Allah and do not disgrace me
+They said, "Have we not forbidden you from [protecting] people
+[Lot] said, "These are my daughters - if you would be doers [of lawful marriage]
+By your life, [O Muhammad], indeed they were, in their intoxication, wandering blindly
+So the shriek seized them at sunrise
+And We made the highest part [of the city] its lowest and rained upon them stones of hard clay
+Indeed in that are signs for those who discern
+And indeed, those cities are [situated] on an established road
+Indeed in that is a sign for the believers
+And the companions of the thicket were [also] wrongdoers
+So We took retribution from them, and indeed, both [cities] are on a clear highway
+And certainly did the companions of Thamud deny the messengers
+And We gave them Our signs, but from them they were turning away
+And they used to carve from the mountains, houses, feeling secure
+But the shriek seized them at early morning
+So nothing availed them [from] what they used to earn
+And We have not created the heavens and earth and that between them except in truth. And indeed, the Hour is coming; so forgive with gracious forgiveness
+Indeed, your Lord - He is the Knowing Creator
+And We have certainly given you, [O Muhammad], seven of the often repeated [verses] and the great Qur'an
+Do not extend your eyes toward that by which We have given enjoyment to [certain] categories of the disbelievers, and do not grieve over them. And lower your wing to the believers
+And say, "Indeed, I am the clear warner
+Just as We had revealed [scriptures] to the separators
+Who have made the Qur'an into portions
+So by your Lord, We will surely question them all
+About what they used to do
+Then declare what you are commanded and turn away from the polytheists
+Indeed, We are sufficient for you against the mockers
+Who make [equal] with Allah another deity. But they are going to know
+And We already know that your breast is constrained by what they say
+So exalt [Allah] with praise of your Lord and be of those who prostrate [to Him]
+And worship your Lord until there comes to you the certainty (death)
+```n

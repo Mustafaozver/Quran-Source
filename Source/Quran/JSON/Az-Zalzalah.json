@@ -1,0 +1,45 @@
+{
+	"Order": 99,
+	"Type": "medinan",
+	"Arabic": {
+		"Name": "الزلزلة",
+		"Lines": [
+			"إِذَا زُلۡزِلَتِ ٱلۡأَرۡضُ زِلۡزَالَهَا",
+			"وَأَخۡرَجَتِ ٱلۡأَرۡضُ أَثۡقَالَهَا",
+			"وَقَالَ ٱلۡإِنسَٰنُ مَا لَهَا",
+			"يَوۡمَئِذٖ تُحَدِّثُ أَخۡبَارَهَا",
+			"بِأَنَّ رَبَّكَ أَوۡحَىٰ لَهَا",
+			"يَوۡمَئِذٖ يَصۡدُرُ ٱلنَّاسُ أَشۡتَاتٗا لِّيُرَوۡاْ أَعۡمَٰلَهُمۡ",
+			"فَمَن يَعۡمَلۡ مِثۡقَالَ ذَرَّةٍ خَيۡرٗا يَرَهُۥ",
+			"وَمَن يَعۡمَلۡ مِثۡقَالَ ذَرَّةٖ شَرّٗا يَرَهُۥ"
+		]
+	},
+	"English": {
+		"Name": "Az-Zalzalah",
+		"Description": "The Earthquake",
+		"Lines": [
+			"When the earth is shaken with its [final] earthquake",
+			"And the earth discharges its burdens",
+			"And man says, \"What is [wrong] with it",
+			"That Day, it will report its news",
+			"Because your Lord has commanded it",
+			"That Day, the people will depart separated [into categories] to be shown [the result of] their deeds",
+			"So whoever does an atom's weight of good will see it",
+			"And whoever does an atom's weight of evil will see it"
+		]
+	},
+	"Turkish": {
+		"Name": "ZİLZAL",
+		"Description": "Deprem",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Yer, bütün şiddetiyle sarsılmış,",
+			"ağırlıklarını çıkarmış (canlılar yeniden yaratılmış[*]) olunca,",
+			"insan: “Burada neler olmuş?” diyecektir.",
+			"O gün yer, bütün haberlerini anlatacaktır.",
+			"Çünkü Rabbin ona bunları bildirmiş olacaktır.",
+			"O gün insanlar bölük bölük öne çıkacaklar ki dünyada yaptıkları kendilerine gösterilsin.",
+			"Kim, zerre kadar iyilik yapmışsa onu görecek."
+		]
+	}
+}

@@ -1,0 +1,33 @@
+{
+	"Order": 112,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "الإخلاص",
+		"Lines": [
+			"قُلۡ هُوَ ٱللَّهُ أَحَدٌ",
+			"ٱللَّهُ ٱلصَّمَدُ",
+			"لَمۡ يَلِدۡ وَلَمۡ يُولَدۡ",
+			"وَلَمۡ يَكُن لَّهُۥ كُفُوًا أَحَدُۢ"
+		]
+	},
+	"English": {
+		"Name": "Al-Ikhlas",
+		"Description": "The Sincerity",
+		"Lines": [
+			"Say, \"He is Allah, [who is] One",
+			"Allah, the Eternal Refuge",
+			"He neither begets nor is born",
+			"Nor is there to Him any equivalent"
+		]
+	},
+	"Turkish": {
+		"Name": "İHLAS",
+		"Description": "İhlâs",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"De ki: \"ilâh[*] Allah’tır! O, bir tektir.",
+			"Allah, bütün istekleri karşılayacak güçtedir[*].",
+			"Çocuğu yoktur, kimsenin evladı da değildir,"
+		]
+	}
+}

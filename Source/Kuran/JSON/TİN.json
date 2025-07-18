@@ -1,0 +1,45 @@
+{
+	"Order": 95,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "التين",
+		"Lines": [
+			"وَٱلتِّينِ وَٱلزَّيۡتُونِ",
+			"وَطُورِ سِينِينَ",
+			"وَهَٰذَا ٱلۡبَلَدِ ٱلۡأَمِينِ",
+			"لَقَدۡ خَلَقۡنَا ٱلۡإِنسَٰنَ فِيٓ أَحۡسَنِ تَقۡوِيمٖ",
+			"ثُمَّ رَدَدۡنَٰهُ أَسۡفَلَ سَٰفِلِينَ",
+			"إِلَّا ٱلَّذِينَ ءَامَنُواْ وَعَمِلُواْ ٱلصَّـٰلِحَٰتِ فَلَهُمۡ أَجۡرٌ غَيۡرُ مَمۡنُونٖ",
+			"فَمَا يُكَذِّبُكَ بَعۡدُ بِٱلدِّينِ",
+			"أَلَيۡسَ ٱللَّهُ بِأَحۡكَمِ ٱلۡحَٰكِمِينَ"
+		]
+	},
+	"English": {
+		"Name": "At-Tin",
+		"Description": "The Fig",
+		"Lines": [
+			"By the fig and the olive",
+			"And [by] Mount Sinai",
+			"And [by] this secure city [Makkah]",
+			"We have certainly created man in the best of stature",
+			"Then We return him to the lowest of the low",
+			"Except for those who believe and do righteous deeds, for they will have a reward uninterrupted",
+			"So what yet causes you to deny the Recompense",
+			"Is not Allah the most just of judges"
+		]
+	},
+	"Turkish": {
+		"Name": "TİN",
+		"Description": "İncir",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"İncirin[1*], Zeytinin[2*] hakkı için.",
+			"Sina dağının[*] hakkı için",
+			"Bu güvenli şehrin hakkı için[*]!",
+			"Biz insanı, en güzel donanımda yaratırız.",
+			"Sonra (yaptığı yanlışlar yüzünden) onu aşağıların en aşağısına indiririz.",
+			"İnanıp güvenen ve iyi işler yapanlar başkadır. Onlara tükenmeyecek ödül vardır.",
+			"Ey insan, bu din karşısında seni yalana sürükleyen nedir?"
+		]
+	}
+}

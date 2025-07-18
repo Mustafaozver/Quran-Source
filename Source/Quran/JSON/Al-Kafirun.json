@@ -1,0 +1,39 @@
+{
+	"Order": 109,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "الكافرون",
+		"Lines": [
+			"قُلۡ يَـٰٓأَيُّهَا ٱلۡكَٰفِرُونَ",
+			"لَآ أَعۡبُدُ مَا تَعۡبُدُونَ",
+			"وَلَآ أَنتُمۡ عَٰبِدُونَ مَآ أَعۡبُدُ",
+			"وَلَآ أَنَا۠ عَابِدٞ مَّا عَبَدتُّمۡ",
+			"وَلَآ أَنتُمۡ عَٰبِدُونَ مَآ أَعۡبُدُ",
+			"لَكُمۡ دِينُكُمۡ وَلِيَ دِينِ"
+		]
+	},
+	"English": {
+		"Name": "Al-Kafirun",
+		"Description": "The Disbelievers",
+		"Lines": [
+			"Say, \"O disbelievers",
+			"I do not worship what you worship",
+			"Nor are you worshippers of what I worship",
+			"Nor will I be a worshipper of what you worship",
+			"Nor will you be worshippers of what I worship",
+			"For you is your religion, and for me is my religion"
+		]
+	},
+	"Turkish": {
+		"Name": "KAFİRUN",
+		"Description": "İnkarcılar",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"De ki: “Ey kâfirler! (Ey âyetleri görmemekte direnenler!)",
+			"Ben kulluk etmem, sizin kul olduğunuza!",
+			"Siz kulluk etmezsiniz benim kul olduğuma!",
+			"Ben kulluk edecek değilim sizin kulluk ettiğinize!",
+			"Zaten siz de kulluk edecek değilsiniz benim kulluk ettiğime!"
+		]
+	}
+}

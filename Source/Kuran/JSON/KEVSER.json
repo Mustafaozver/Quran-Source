@@ -1,0 +1,30 @@
+{
+	"Order": 108,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "الكوثر",
+		"Lines": [
+			"إِنَّآ أَعۡطَيۡنَٰكَ ٱلۡكَوۡثَرَ",
+			"فَصَلِّ لِرَبِّكَ وَٱنۡحَرۡ",
+			"إِنَّ شَانِئَكَ هُوَ ٱلۡأَبۡتَرُ"
+		]
+	},
+	"English": {
+		"Name": "Al-Kawthar",
+		"Description": "The Abundance",
+		"Lines": [
+			"Indeed, We have granted you, [O Muhammad], al-Kawthar",
+			"So pray to your Lord and sacrifice [to Him alone]",
+			"Indeed, your enemy is the one cut off"
+		]
+	},
+	"Turkish": {
+		"Name": "KEVSER",
+		"Description": "Bolluk",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Sana çok önemli olan şeyi verdik[*].",
+			"Öyleyse her işi Rabbin (Sahibin) için yap[1*] ve dik dur[*2]!"
+		]
+	}
+}

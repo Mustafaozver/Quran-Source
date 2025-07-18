@@ -1,0 +1,69 @@
+# TAHRİM التحريم ( Yasaklama ) 
+---
+- Sure Adı : TAHRİM
+- Sure No : 66
+- Sure Tipi : medinan
+- Sure Ayet Sayısı : 12
+
+
+---
+
+```read
+İyiliği sonsuz, ikramı bol Allah’ın adıyla,
+Ey Nebi! Allah’ın özel olarak sana helal kıldığını, neden kendine haram kılıyorsun? Eşlerinin gönlünü etmeye çalışıyorsun. Neyse ki Allah bağışlar, ikramı boldur.
+Allah, bu tür yeminlerinizi bozmayı size farz kılmıştır[*]. Allah sizin en yakınınızdır. Her şeyi bilen ve kararları doğru olan O’dur.
+Bir gün Nebi, eşlerinden birine gizli bir söz söylemişti. Eşi onu, diğer eşine bildirince Allah, Nebisini o konuda bilgilendirdi. O da onun birazını eşine anlattı, birazını da anlatmaktan vazgeçti. Eşine bildirdiğinde o: “Bunu sana kim bildirdi?” dedi. Nebi de “Bana, her şeyi bilen; her şeyin iç yüzünü bilen bildirdi.” diye cevap verdi.
+(Ey Nebî’nin iki eşi!) Allah’a yönelip tevbe ederseniz iyi olur. Çünkü ikinizin de gönlü kaydı. Eğer birlikte ona karşı harekete geçerseniz bilin ki Allah, Cebrail ve iyi müminler onun yakın dostlarıdır. Bundan sonra melekler de ona destek olurlar.
+Eğer sizi boşarsa bakarsınız ki Allah yerinize daha iyi eşler verir. Onlar, Allah’a teslim olan, inanıp güvenen, boyun eğen, ona yönelen, ibadetlerini yapan ve oruç tutan dullardan ve bakirelerden olabilir.
+Ey inanıp güvenenler! Tutuşturucusu insanlar ve taşlar olan bir ateşe karşı kendinizi ve ailenizi koruyun. Orayı iri gövdeli, katı yürekli melekler (görevliler[*]) yönetirler. Onlar, Allah’ın emrine karşı gelmezler; kendilerine ne emredilmişse onu yaparlar.
+Ey ayetleri görmezlikten gelenler (kafirler)![*] Bu gün özür ileri sürmeyin. Sadece yaptıklarınızın cezasını çekeceksiniz.
+Ey inanıp güvenenler! Örnek bir dönüşle Allah’a dönün. Belki Sahibiniz, nebilerini ve inanıp güvenenleri (müminleri) aşağılamayacağı günde kabahatlerinizi örter de sizi içinden ırmaklar akan bahçelere yerleştirir. (Oraya gidecek olanların) Nurları önlerini ve sağ yanlarını aydınlatır. Şöyle derler: “Rabbimiz, nurumuzu tamamla ve bizi bağışla. Her şeye bir ölçü koyan sensin.”
+Ey Nebi! Ayetleri görmezlikten gelenlerle (kafirlerle) ve iki yüzlülerle (münafıklarla) mücadeleye devam et. Onlara karşı dik dur. Onların varacağı yer Cehennem’dir. Ne kötü hale gelmektir o!
+Allah, ayetleri görmezlikten gelenler için Nuh’un eşi ile Lut’un eşini örnek verir. Onlar, iyi kullarımızdan ikisinin nikahı altında idiler. Kocalarına ihanet ettiler. Kocaları onlara, Allah’tan gelen hiç bir şeyi engelleyemeyecektir. Onlara “Ateşe girenlerle birlikte siz de girin” denecektir.
+Allah, inanıp güvenen kimselere (müminlere) de Firavun’un eşini örnek verir. O şöyle demişti: “Sahibim (Rabbim)! Cennet’te, senin katında benim için bir ev yap. Beni Firavun’dan ve işlerinden kurtar. Beni yanlışlar içinde olan bu toplumdan kurtar.”
+```
+---
+
+### Açıklamalar
+
+```read
+<strong>[*]</strong>&nbsp;Allah Teala şöyle demiştir: Yaptığınız yeminlerde, Allah’ı, iyilik yapmanıza, takvânıza (kendinizi korumanıza) ve insanların arasını düzeltmenize engel yapmayın.# Her şeyi dinleyen ve bilen Allah’tır.&nbsp;Allah, boş bulunarak yaptığınız yeminlerden dolayı sizi sorumlu tutmaz, ama bilinçli olarak yaptıklarınızdan sorumlu tutar. Çokça bağışlayan ve yumuşak davranan Allah’tır.&nbsp;(Bakara 2/224-225)
+
+	Nebîmiz şöyle demiştir:“Günaha yemin edenin yemini, yemin değildir. Akraba ile ilişkiyi kesmeye yemin edenin yemini de yemin değildir.” (Ebu Davud, Talak 7, Hadis No 2191) “Bir konuda yemin eder, sonra başkasını hayırlı görürsen, yeminini boz, kefaretini ver ve hayırlı gördüğüne yönel.” (Buhari, Eyman, 1) 
+
+	&nbsp;
+[*] ....
+<strong>[*]</strong> <a href="http://suleymaniyevakfimeali.com/Meal/Al-i İmran.htm#106">Al-i İmran 3/106</a>
+```
+---
+## التحريم
+```read
+يَـٰٓأَيُّهَا ٱلنَّبِيُّ لِمَ تُحَرِّمُ مَآ أَحَلَّ ٱللَّهُ لَكَۖ تَبۡتَغِي مَرۡضَاتَ أَزۡوَٰجِكَۚ وَٱللَّهُ غَفُورٞ رَّحِيمٞ
+قَدۡ فَرَضَ ٱللَّهُ لَكُمۡ تَحِلَّةَ أَيۡمَٰنِكُمۡۚ وَٱللَّهُ مَوۡلَىٰكُمۡۖ وَهُوَ ٱلۡعَلِيمُ ٱلۡحَكِيمُ
+وَإِذۡ أَسَرَّ ٱلنَّبِيُّ إِلَىٰ بَعۡضِ أَزۡوَٰجِهِۦ حَدِيثٗا فَلَمَّا نَبَّأَتۡ بِهِۦ وَأَظۡهَرَهُ ٱللَّهُ عَلَيۡهِ عَرَّفَ بَعۡضَهُۥ وَأَعۡرَضَ عَنۢ بَعۡضٖۖ فَلَمَّا نَبَّأَهَا بِهِۦ قَالَتۡ مَنۡ أَنۢبَأَكَ هَٰذَاۖ قَالَ نَبَّأَنِيَ ٱلۡعَلِيمُ ٱلۡخَبِيرُ
+إِن تَتُوبَآ إِلَى ٱللَّهِ فَقَدۡ صَغَتۡ قُلُوبُكُمَاۖ وَإِن تَظَٰهَرَا عَلَيۡهِ فَإِنَّ ٱللَّهَ هُوَ مَوۡلَىٰهُ وَجِبۡرِيلُ وَصَٰلِحُ ٱلۡمُؤۡمِنِينَۖ وَٱلۡمَلَـٰٓئِكَةُ بَعۡدَ ذَٰلِكَ ظَهِيرٌ
+عَسَىٰ رَبُّهُۥٓ إِن طَلَّقَكُنَّ أَن يُبۡدِلَهُۥٓ أَزۡوَٰجًا خَيۡرٗا مِّنكُنَّ مُسۡلِمَٰتٖ مُّؤۡمِنَٰتٖ قَٰنِتَٰتٖ تَـٰٓئِبَٰتٍ عَٰبِدَٰتٖ سَـٰٓئِحَٰتٖ ثَيِّبَٰتٖ وَأَبۡكَارٗا
+يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُواْ قُوٓاْ أَنفُسَكُمۡ وَأَهۡلِيكُمۡ نَارٗا وَقُودُهَا ٱلنَّاسُ وَٱلۡحِجَارَةُ عَلَيۡهَا مَلَـٰٓئِكَةٌ غِلَاظٞ شِدَادٞ لَّا يَعۡصُونَ ٱللَّهَ مَآ أَمَرَهُمۡ وَيَفۡعَلُونَ مَا يُؤۡمَرُونَ
+يَـٰٓأَيُّهَا ٱلَّذِينَ كَفَرُواْ لَا تَعۡتَذِرُواْ ٱلۡيَوۡمَۖ إِنَّمَا تُجۡزَوۡنَ مَا كُنتُمۡ تَعۡمَلُونَ
+يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُواْ تُوبُوٓاْ إِلَى ٱللَّهِ تَوۡبَةٗ نَّصُوحًا عَسَىٰ رَبُّكُمۡ أَن يُكَفِّرَ عَنكُمۡ سَيِّـَٔاتِكُمۡ وَيُدۡخِلَكُمۡ جَنَّـٰتٖ تَجۡرِي مِن تَحۡتِهَا ٱلۡأَنۡهَٰرُ يَوۡمَ لَا يُخۡزِي ٱللَّهُ ٱلنَّبِيَّ وَٱلَّذِينَ ءَامَنُواْ مَعَهُۥۖ نُورُهُمۡ يَسۡعَىٰ بَيۡنَ أَيۡدِيهِمۡ وَبِأَيۡمَٰنِهِمۡ يَقُولُونَ رَبَّنَآ أَتۡمِمۡ لَنَا نُورَنَا وَٱغۡفِرۡ لَنَآۖ إِنَّكَ عَلَىٰ كُلِّ شَيۡءٖ قَدِيرٞ
+يَـٰٓأَيُّهَا ٱلنَّبِيُّ جَٰهِدِ ٱلۡكُفَّارَ وَٱلۡمُنَٰفِقِينَ وَٱغۡلُظۡ عَلَيۡهِمۡۚ وَمَأۡوَىٰهُمۡ جَهَنَّمُۖ وَبِئۡسَ ٱلۡمَصِيرُ
+ضَرَبَ ٱللَّهُ مَثَلٗا لِّلَّذِينَ كَفَرُواْ ٱمۡرَأَتَ نُوحٖ وَٱمۡرَأَتَ لُوطٖۖ كَانَتَا تَحۡتَ عَبۡدَيۡنِ مِنۡ عِبَادِنَا صَٰلِحَيۡنِ فَخَانَتَاهُمَا فَلَمۡ يُغۡنِيَا عَنۡهُمَا مِنَ ٱللَّهِ شَيۡـٔٗا وَقِيلَ ٱدۡخُلَا ٱلنَّارَ مَعَ ٱلدَّـٰخِلِينَ
+وَضَرَبَ ٱللَّهُ مَثَلٗا لِّلَّذِينَ ءَامَنُواْ ٱمۡرَأَتَ فِرۡعَوۡنَ إِذۡ قَالَتۡ رَبِّ ٱبۡنِ لِي عِندَكَ بَيۡتٗا فِي ٱلۡجَنَّةِ وَنَجِّنِي مِن فِرۡعَوۡنَ وَعَمَلِهِۦ وَنَجِّنِي مِنَ ٱلۡقَوۡمِ ٱلظَّـٰلِمِينَ
+وَمَرۡيَمَ ٱبۡنَتَ عِمۡرَٰنَ ٱلَّتِيٓ أَحۡصَنَتۡ فَرۡجَهَا فَنَفَخۡنَا فِيهِ مِن رُّوحِنَا وَصَدَّقَتۡ بِكَلِمَٰتِ رَبِّهَا وَكُتُبِهِۦ وَكَانَتۡ مِنَ ٱلۡقَٰنِتِينَ
+```
+---
+## At-Tahrim
+```read
+O Prophet, why do you prohibit [yourself from] what Allah has made lawful for you, seeking the approval of your wives? And Allah is Forgiving and Merciful
+Allah has already ordained for you [Muslims] the dissolution of your oaths. And Allah is your protector, and He is the Knowing, the Wise
+And [remember] when the Prophet confided to one of his wives a statement; and when she informed [another] of it and Allah showed it to him, he made known part of it and ignored a part. And when he informed her about it, she said, "Who told you this?" He said, "I was informed by the Knowing, the Acquainted
+If you two [wives] repent to Allah, [it is best], for your hearts have deviated. But if you cooperate against him - then indeed Allah is his protector, and Gabriel and the righteous of the believers and the angels, moreover, are [his] assistants
+Perhaps his Lord, if he divorced you [all], would substitute for him wives better than you - submitting [to Allah], believing, devoutly obedient, repentant, worshipping, and traveling - [ones] previously married and virgins
+O you who have believed, protect yourselves and your families from a Fire whose fuel is people and stones, over which are [appointed] angels, harsh and severe; they do not disobey Allah in what He commands them but do what they are commanded
+O you who have disbelieved, make no excuses that Day. You will only be recompensed for what you used to do
+O you who have believed, repent to Allah with sincere repentance. Perhaps your Lord will remove from you your misdeeds and admit you into gardens beneath which rivers flow [on] the Day when Allah will not disgrace the Prophet and those who believed with him. Their light will proceed before them and on their right; they will say, "Our Lord, perfect for us our light and forgive us. Indeed, You are over all things competent
+O Prophet, strive against the disbelievers and the hypocrites and be harsh upon them. And their refuge is Hell, and wretched is the destination
+Allah presents an example of those who disbelieved: the wife of Noah and the wife of Lot. They were under two of Our righteous servants but betrayed them, so those prophets did not avail them from Allah at all, and it was said, "Enter the Fire with those who enter
+And Allah presents an example of those who believed: the wife of Pharaoh, when she said, "My Lord, build for me near You a house in Paradise and save me from Pharaoh and his deeds and save me from the wrongdoing people
+And [the example of] Mary, the daughter of 'Imran, who guarded her chastity, so We blew into [her garment] through Our angel, and she believed in the words of her Lord and His scriptures and was of the devoutly obedient
+```n

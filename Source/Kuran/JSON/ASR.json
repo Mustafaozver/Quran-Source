@@ -1,0 +1,30 @@
+{
+	"Order": 103,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "العصر",
+		"Lines": [
+			"وَٱلۡعَصۡرِ",
+			"إِنَّ ٱلۡإِنسَٰنَ لَفِي خُسۡرٍ",
+			"إِلَّا ٱلَّذِينَ ءَامَنُواْ وَعَمِلُواْ ٱلصَّـٰلِحَٰتِ وَتَوَاصَوۡاْ بِٱلۡحَقِّ وَتَوَاصَوۡاْ بِٱلصَّبۡرِ"
+		]
+	},
+	"English": {
+		"Name": "Al-'Asr",
+		"Description": "The Declining Day",
+		"Lines": [
+			"By time",
+			"Indeed, mankind is in loss",
+			"Except for those who have believed and done righteous deeds and advised each other to truth and advised each other to patience"
+		]
+	},
+	"Turkish": {
+		"Name": "ASR",
+		"Description": "Azalan Gün",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Zamanın hakkı için[*]",
+			"İnsan kesinkes zarardadır[*]."
+		]
+	}
+}

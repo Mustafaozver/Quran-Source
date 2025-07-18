@@ -1,0 +1,54 @@
+{
+	"Order": 101,
+	"Type": "meccan",
+	"Arabic": {
+		"Name": "القارعة",
+		"Lines": [
+			"ٱلۡقَارِعَةُ",
+			"مَا ٱلۡقَارِعَةُ",
+			"وَمَآ أَدۡرَىٰكَ مَا ٱلۡقَارِعَةُ",
+			"يَوۡمَ يَكُونُ ٱلنَّاسُ كَٱلۡفَرَاشِ ٱلۡمَبۡثُوثِ",
+			"وَتَكُونُ ٱلۡجِبَالُ كَٱلۡعِهۡنِ ٱلۡمَنفُوشِ",
+			"فَأَمَّا مَن ثَقُلَتۡ مَوَٰزِينُهُۥ",
+			"فَهُوَ فِي عِيشَةٖ رَّاضِيَةٖ",
+			"وَأَمَّا مَنۡ خَفَّتۡ مَوَٰزِينُهُۥ",
+			"فَأُمُّهُۥ هَاوِيَةٞ",
+			"وَمَآ أَدۡرَىٰكَ مَا هِيَهۡ",
+			"نَارٌ حَامِيَةُۢ"
+		]
+	},
+	"English": {
+		"Name": "Al-Qari'ah",
+		"Description": "The Calamity",
+		"Lines": [
+			"The Striking Calamity",
+			"What is the Striking Calamity",
+			"And what can make you know what is the Striking Calamity",
+			"It is the Day when people will be like moths, dispersed",
+			"And the mountains will be like wool, fluffed up",
+			"Then as for one whose scales are heavy [with good deeds]",
+			"He will be in a pleasant life",
+			"But as for one whose scales are light",
+			"His refuge will be an abyss",
+			"And what can make you know what that is",
+			"It is a Fire, intensely hot"
+		]
+	},
+	"Turkish": {
+		"Name": "KARİA",
+		"Description": "Felaket",
+		"Lines": [
+			"İyiliği sonsuz, ikramı bol Allah’ın adıyla,",
+			"Gümbürdeyen!",
+			"Nedir o gümbürdeyen?",
+			"Gümbürdeyenin ne olduğunu nereden bileceksin[*]?",
+			"İnsanların dağılmış kelebekler gibi[*] olduğu gün,",
+			"dağlar, rengârenk yünler gibi yayılmış olur[*].",
+			"Tartıları (sevapları) ağır gelen",
+			"mutlu bir yaşayış içine girer.",
+			"Ama kimin tartıları (sevapları) az olursa",
+			"onun anası (gideceği yer) Haviye olur.",
+			"Haviye nedir, nereden bileceksin?"
+		]
+	}
+}
